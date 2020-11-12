@@ -1,4 +1,4 @@
-In the cicada's cry    
-and bring to men a chance to rest    
-Of warriors’ dreams.    
+Spring is passing.    
+The fragrant blossoms remain.    
+from the kiri tree.    
 

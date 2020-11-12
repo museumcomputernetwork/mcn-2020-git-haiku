@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-Stabs the darkness    
+In the cicada's cry    
+and bring to men a chance to rest    
+Of warriors’ dreams.    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
+Poverty's child -    
 The fragrant blossoms remain.    
-from the kiri tree.    
+How soon it must die.    
 

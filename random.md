@@ -1,4 +1,4 @@
-Temple bells die out.    
-in dusky night    
-and gazes at the moon.    
+Oh, tranquility!    
+A frog jumps in -    
+from the kiri tree.    
 

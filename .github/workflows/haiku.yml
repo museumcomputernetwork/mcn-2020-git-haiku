@@ -1,0 +1,29 @@
+name: Write a new Haiku
+
+on:
+  push:
+  workflow_dispatch:
+  schedule:
+    - cron:  '3,13,23,33,43,53 * * * *'
+
+jobs:
+  haiku:
+    runs-on: ubuntu-latest
+    steps:
+    - name: Check out repo
+      uses: actions/checkout@v2
+    - name: Spin up `node`
+      uses: actions/setup-node@v2-beta
+      with:
+        node-version: '12'
+    - name: Download latest files
+      run: |-
+        node randomize-haiku > random.md
+    - name: Commit and push if changed
+      run: |-
+        git diff
+        git config --global user.email "actions@users.noreply.github.com"
+        git config --global user.name "MCN Haiku Bot"
+        git add -A
+        git commit -m "🌊" || exit 0
+        git push

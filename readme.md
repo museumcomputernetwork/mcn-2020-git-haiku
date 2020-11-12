@@ -1,4 +1,4 @@
-Poverty's child -    
+White cloud of mist    
 The birds cry, and the fishes’ eyes are     
-Of warriors’ dreams.    
+from the kiri tree.    
 

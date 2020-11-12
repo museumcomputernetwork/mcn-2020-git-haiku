@@ -1,4 +1,4 @@
-White cloud of mist    
-The birds cry, and the fishes’ eyes are     
-from the kiri tree.    
+Clouds come from time to time -    
+The fragrant blossoms remain.    
+Stabs the darkness    
 

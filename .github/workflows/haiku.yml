@@ -18,7 +18,7 @@ jobs:
         node-version: '12'
     - name: Download latest files
       run: |-
-        node randomize-haiku > random.md
+        node randomize-haiku > readme.md
     - name: Commit and push if changed
       run: |-
         git diff

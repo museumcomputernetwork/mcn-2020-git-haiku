@@ -13,7 +13,7 @@ shuffle(haikus)
 
 const exquisiteHaiku = haikus.slice(0, 3).reduce((reduction, haiku, index) => {
   const haikuLines = haiku.split('\n')
-  reduction += haikuLines[index] + '\n'
+  reduction += haikuLines[index] + '    \n'
 
   return reduction
 }, '')

@@ -62,6 +62,10 @@ White cloud of mist
 above white
 cherry-blossoms . . .
 
+This is the new line
+Line that won't be deleted
+Basho lines the moon
+
 haiku line 1
-haiku line 2!
+kjell haiku line 2!
 line 3

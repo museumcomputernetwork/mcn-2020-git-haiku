@@ -61,3 +61,7 @@ are darkened . . .
 White cloud of mist
 above white
 cherry-blossoms . . .
+
+This is the new line
+Line that won't be deleted
+Basho lines the moon

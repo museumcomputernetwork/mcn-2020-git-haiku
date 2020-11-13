@@ -61,3 +61,7 @@ are darkened . . .
 White cloud of mist
 above white
 cherry-blossoms . . .
+
+haiku line 1
+haiku line 2!
+line 3

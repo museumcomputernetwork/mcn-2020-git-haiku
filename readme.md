@@ -1,5 +1,5 @@
-A owner of the old thatched hut    
-Heron's cry    
-Basho lines the moon    
+Now that eyes of hawks    
+he starts to grind the rice,    
+A perfect evening!    
 
 [![print showing a group of pupils sitting cross-legged, circled around their teacher, the poet Bashō](https://iiif.dx.artsmia.org/42530.jpg/full/1300,/0/default.jpg)](https://artsmia.org/art/42530)

@@ -2,8 +2,19 @@
 const fs = require('fs')
 
 const haikus = fs
-  .readFileSync('./haikus-basho.md', { encoding: 'utf-8' })
+  .readdirSync('haikus')
+  .filter(filename => filename.match(/.md$/))
+  .map(filename => fs.readFileSync(`haikus/${filename}`, { encoding: 'utf-8' }))
+  .join('\n')
   .split('\n\n')
+  .filter(haiku => haiku.trim() !== '') // reject empty lines
+  .filter(haiku => {
+    // make sure there are at least 3 lines
+    const lines = haiku.split('\n')
+
+    // TODO verify 3 lines are a haiku, then one blank line?
+    return lines.length >= 3
+  })
 
 /**
  * Randomly select 3 haikus.

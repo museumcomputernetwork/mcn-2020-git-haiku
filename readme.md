@@ -1,5 +1,5 @@
-Lightning -    
-and bring to men a chance to rest    
-Splash!    
+The rains of summer join together.    
+Here along this way but I,    
+Stabs the darkness    
 
 [![print showing a group of pupils sitting cross-legged, circled around their teacher, the poet Bashō](https://iiif.dx.artsmia.org/42530.jpg/full/1300,/0/default.jpg)](https://artsmia.org/art/42530)

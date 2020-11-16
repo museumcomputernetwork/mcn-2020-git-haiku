@@ -1,4 +1,4 @@
-This is the new line    
+Spring is passing.    
 Here along this way but I,    
 are darkened . . .    
 

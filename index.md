@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-that black crow I hate so much    
-A perfect evening!    
+An old pond    
+to see the moon, whose solemn pace    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-When you say something,    
-A frog jumps in -    
-Tall grass their monument    
+Silent the old town    
+to see the moon, whose solemn pace    
+With tears.    
 

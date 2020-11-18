@@ -1,4 +1,4 @@
-Ah me! I am one    
+Too curious flower    
 he starts to grind the rice,    
-and gazes at the moon.    
+Ueno? Asakura?    
 

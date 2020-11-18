@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-falling, falling, falling now    
-cherry-blossoms . . .    
+The rains of summer join together.    
+then cry all birds and fishes    
+Contemptuous of frost    
 

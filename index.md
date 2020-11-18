@@ -1,4 +1,4 @@
-See: surviving suns    
-How swift it is    
-And evening bell    
+Seek on high bare trails    
+All that remains    
+This autumn evening.    
 

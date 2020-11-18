@@ -1,4 +1,4 @@
-Now that eyes of hawks    
+Old dark sleepy pool    
 even the crickets' singing    
-Over the orchid    
+And evening bell    
 

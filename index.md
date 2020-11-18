@@ -1,4 +1,4 @@
-Mountain-rose petals    
-visit the ancestral grave    
-A perfect evening!    
+Bright red pepper-pod    
+The birds cry, and the fishes’ eyes are     
+Over the orchid    
 

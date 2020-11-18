@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-A little woven cape    
+See: surviving suns    
+How swift it is    
+And evening bell    
 

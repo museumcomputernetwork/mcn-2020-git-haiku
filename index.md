@@ -1,4 +1,4 @@
-See: surviving suns    
-Line that won't be deleted    
-A solitary bird    
+A owner of the old thatched hut    
+chirping, keeps the autumn gay    
+A butterfly floats and balances    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-tolling twilight bell; Temple    
-Of faded daffodils    
+Temple bells die out.    
+mingling with bright small shells    
+the autumn dusk is here.    
 

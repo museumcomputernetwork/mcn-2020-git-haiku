@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-How swift it is    
-Enjoying the house    
+Seas are wild tonight    
+poor monkey, you too could use    
+Among the flowers    
 

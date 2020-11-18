@@ -1,4 +1,4 @@
-White cloud of mist    
-he starts to grind the rice,    
-Tall grass their monument    
+Such utter silence!    
+just enough to bend the leaves    
+Mogami River.    
 

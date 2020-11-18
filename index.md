@@ -1,4 +1,4 @@
-This snowy morning    
-Line that won't be deleted    
-Bearded, with bent canes    
+The summer grasses.    
+he starts to grind the rice,    
+Cherry-blossoms    
 

@@ -1,4 +1,4 @@
-If there were fragrance    
-and bring to men a chance to rest    
-Mogami River.    
+The rains of summer join together.    
+spare my little buzzing friends    
+Of warriors’ dreams.    
 

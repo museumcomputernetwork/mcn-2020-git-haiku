@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-spare my little buzzing friends    
-from the kiri tree.    
+Chirping of the quails    
+How swift it is    
+Two white butterflies?    
 

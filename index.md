@@ -1,4 +1,4 @@
-None is travelling    
-Heron's cry    
-from looking at the moon.    
+Here, where a thousand    
+then cry all birds and fishes    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The birds cry, and the fishes’ eyes are     
-from the kiri tree.    
+Why so scrawny, cat?    
+above white    
+Our hungry donkey    
 

@@ -1,4 +1,4 @@
-Under cherry-trees    
-scatters in the night; Now see    
-This autumn evening.    
+Clouds come from time to time -    
+oh voices of the wild ducks    
+Our hungry donkey    
 

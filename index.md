@@ -1,4 +1,4 @@
-The summer grasses.    
-he starts to grind the rice,    
-Cherry-blossoms    
+Cloud of cherry-bloom    
+Please don't tell my museum    
+Contemptuous of frost    
 

@@ -1,4 +1,4 @@
-Too curious flower    
-just enough to bend the leaves    
-I need a coffee    
+This snowy morning    
+Line that won't be deleted    
+Bearded, with bent canes    
 

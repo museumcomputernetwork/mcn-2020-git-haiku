@@ -1,4 +1,4 @@
-Silent the old town    
-to see the moon, whose solemn pace    
-With tears.    
+None is travelling    
+Heron's cry    
+from looking at the moon.    
 

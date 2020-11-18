@@ -1,4 +1,4 @@
-Spring is passing.    
-quick unexpected frog    
-A lovely sunset    
+Chirping of the quails    
+here at your flowering grave    
+A water-jewel    
 

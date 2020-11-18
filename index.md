@@ -1,4 +1,4 @@
-When you say something,    
-and bring to men a chance to rest    
-Stabs the darkness    
+Indoors wintertime    
+Heron's cry    
+A cicada’s voice.    
 

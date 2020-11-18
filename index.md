@@ -1,4 +1,4 @@
-The summer grasses.    
-here at your flowering grave    
-Bush-clover petals    
+Ah me! I am one    
+in dusky night    
+How soon it must die.    
 

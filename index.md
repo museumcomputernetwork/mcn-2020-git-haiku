@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-mingling with bright small shells    
-From the kiri tree.    
+Won't you come and see    
+Twilight whippoorwill, whistle on, sweet deepener    
+It’s the Doll’s Festival.    
 

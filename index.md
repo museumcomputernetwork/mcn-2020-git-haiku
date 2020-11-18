@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Penetrating the very rock,    
-Moon-lighted mountains!    
+Will we meet again    
+stretching over Sado Island    
+are darkened . . .    
 

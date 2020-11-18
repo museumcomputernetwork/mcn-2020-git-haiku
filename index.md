@@ -1,4 +1,4 @@
-Such utter silence!    
-just enough to bend the leaves    
+If there were fragrance    
+and bring to men a chance to rest    
 Mogami River.    
 

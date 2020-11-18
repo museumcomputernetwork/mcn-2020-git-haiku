@@ -1,4 +1,4 @@
-Seas are wild tonight    
-A frog jumps in -    
-Waterfall music    
+Under cherry-trees    
+scatters in the night; Now see    
+This autumn evening.    
 

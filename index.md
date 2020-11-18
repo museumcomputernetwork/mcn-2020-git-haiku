@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Penetrating the very rock,    
-Silent clouds of stars    
+Nine times arising    
+dead leaves alone foregather    
+But he's beautiful!    
 

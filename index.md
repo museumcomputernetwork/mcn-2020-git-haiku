@@ -1,4 +1,4 @@
-Ballet in the air    
-therefore our thanks dark clouds    
-With tears.    
+Why so scrawny, cat?    
+tolling twilight bell; Temple    
+Among the flowers    
 

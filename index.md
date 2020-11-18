@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The birds cry, and the fishes’ eyes are     
-Over the orchid    
+A owner of the old thatched hut    
+The fragrant blossoms remain.    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Camellia-petal    
-who spends his little breakfast    
-Like our tendrilled life    
+Why so scrawny, cat?    
+How swift it is    
+Enjoying the house    
 

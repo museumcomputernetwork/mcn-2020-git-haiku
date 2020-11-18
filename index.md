@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-who spends his little breakfast    
+Oh, tranquility!    
+falling, falling, falling now    
 and gazes at the moon.    
 

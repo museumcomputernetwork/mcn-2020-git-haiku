@@ -1,4 +1,4 @@
-In the sea-surf edge    
-There's no sign that can foretell    
-Tall grass their monument    
+Now that eyes of hawks    
+loneliness? Just one leaf    
+Come to rest our necks    
 

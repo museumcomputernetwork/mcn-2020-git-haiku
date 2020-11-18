@@ -1,4 +1,4 @@
-Such utter silence!    
-Twilight whippoorwill, whistle on, sweet deepener    
-My moonlit pillow    
+First white snow of fall    
+here at your flowering grave    
+Seasoned with petals    
 

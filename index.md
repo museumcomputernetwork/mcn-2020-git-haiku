@@ -1,4 +1,4 @@
-Glorious the moon    
-and bring to men a chance to rest    
-Mogami River.    
+Wake! The sky is light!    
+dead leaves alone foregather    
+Bearded, with bent canes    
 

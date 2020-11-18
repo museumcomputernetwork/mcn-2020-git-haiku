@@ -1,4 +1,4 @@
-Won't you come and see    
-captains swore grand conquest    
-Mountain-top jewels    
+The rains of summer join together.    
+Penetrating the very rock,    
+Moon-lighted mountains!    
 

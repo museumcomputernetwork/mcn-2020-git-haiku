@@ -1,4 +1,4 @@
-Oh, tranquility!    
-falling, falling, falling now    
-and gazes at the moon.    
+Too curious flower    
+The fragrant blossoms remain.    
+Mogami River.    
 

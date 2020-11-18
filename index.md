@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-A frog jumps in -    
-are darkened . . .    
+Clouds come from time to time -    
+mingling with bright small shells    
+From the kiri tree.    
 

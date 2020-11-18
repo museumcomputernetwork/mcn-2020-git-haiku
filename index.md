@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-Cold pale eyes pour tears    
+Carven gods long gone    
+starving for fat fish or mice    
+-ching me new tech skills!    
 

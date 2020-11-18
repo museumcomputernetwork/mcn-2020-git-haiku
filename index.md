@@ -1,4 +1,4 @@
-Won't you come and see    
-thoughts come - and there is loneliness;    
-A perfect evening!    
+The river gathering may rains    
+How swift it is    
+It’s the Doll’s Festival.    
 

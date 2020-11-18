@@ -1,4 +1,4 @@
-The rains of summer join together.    
-I am off to bed - but ah!    
-are darkened . . .    
+When you say something,    
+and bring to men a chance to rest    
+A butterfly floats and balances    
 

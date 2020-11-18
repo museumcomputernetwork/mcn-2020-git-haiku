@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Here along this way but I,    
-Seasoned with petals    
+A owner of the old thatched hut    
+Penetrating the very rock,    
+Silent clouds of stars    
 

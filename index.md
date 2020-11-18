@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-above white    
-and gazes at the moon.    
+In the sea-surf edge    
+here at your flowering grave    
+the autumn dusk is here.    
 

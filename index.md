@@ -1,4 +1,4 @@
-Oh, tranquility!    
-soup, the salad, fish and all    
-My moonlit pillow    
+A owner of the old thatched hut    
+Penetrating the very rock,    
+The autumn dusk is here.    
 

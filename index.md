@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-oh voices of the wild ducks    
-Our hungry donkey    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+Murmuring Mogami    
 

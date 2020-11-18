@@ -1,4 +1,4 @@
-Under cherry-trees    
-Penetrating the very rock,    
-Or backyard love?    
+Spring is passing.    
+who spends his little breakfast    
+Marks only midnight yet    
 

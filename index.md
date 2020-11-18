@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-All that remains    
-Splash!    
+An old pond    
+Is also changed to another    
+Come to rest our necks    
 

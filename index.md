@@ -1,4 +1,4 @@
-Chirping of the quails    
-How swift it is    
-Two white butterflies?    
+Too curious flower    
+who spends his little breakfast    
+With tears.    
 

@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-chirping, keeps the autumn gay    
-A butterfly floats and balances    
+White cloud of mist    
+Penetrating the very rock,    
+Marks only midnight yet    
 

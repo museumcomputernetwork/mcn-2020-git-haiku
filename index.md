@@ -1,4 +1,4 @@
-Oh, tranquility!    
-that black crow I hate so much    
-Murmuring Mogami    
+Poverty's child -    
+mingling with bright small shells    
+Splash!    
 

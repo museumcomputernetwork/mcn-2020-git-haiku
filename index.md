@@ -1,4 +1,4 @@
-Temple bells die out.    
-All that remains    
-The Autumn wind.    
+Such utter silence!    
+loneliness? Just one leaf    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-First white snow of fall    
-that black crow I hate so much    
-Ueno? Asakura?    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+Cold pale eyes pour tears    
 

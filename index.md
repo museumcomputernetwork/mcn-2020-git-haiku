@@ -1,4 +1,4 @@
-Temple bells die out.    
-to see the moon, whose solemn pace    
-But he's beautiful!    
+The river gathering may rains    
+falling, falling, falling now    
+and gazes at the moon.    
 

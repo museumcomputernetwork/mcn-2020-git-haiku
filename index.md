@@ -1,4 +1,4 @@
-Too curious flower    
-who spends his little breakfast    
-With tears.    
+Cloud of cherry-bloom    
+in dusky night    
+Stabs the darkness    
 

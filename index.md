@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-Come to rest our necks    
+Nine times arising    
+he starts to grind the rice,    
+And evening bell    
 

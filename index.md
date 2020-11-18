@@ -1,4 +1,4 @@
-For a lovely bowl    
-to see the moon, whose solemn pace    
-This autumn evening.    
+In the cicada's cry    
+starving for fat fish or mice    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-in your brief sweet waters    
-With tears.    
+Mountain-rose petals    
+visit the ancestral grave    
+A perfect evening!    
 

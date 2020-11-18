@@ -1,4 +1,4 @@
-MCN day 5 -    
-not even a magazine    
-But he's beautiful!    
+Oh, tranquility!    
+An herbal tea, sit, listen    
+A solitary bird    
 

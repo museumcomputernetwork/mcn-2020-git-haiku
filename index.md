@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-tolling twilight bell; Temple    
-Among the flowers    
+the zoom waiting room    
+in dusky night    
+Ueno? Asakura?    
 

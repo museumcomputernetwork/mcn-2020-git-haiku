@@ -1,4 +1,4 @@
-In the twilight rain    
-dead leaves alone foregather    
-It’s the Doll’s Festival.    
+A owner of the old thatched hut    
+that black crow I hate so much    
+A perfect evening!    
 

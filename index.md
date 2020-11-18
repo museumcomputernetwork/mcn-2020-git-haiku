@@ -1,4 +1,4 @@
-Ah me! I am one    
-soup, the salad, fish and all    
-This autumn evening.    
+Lightning -    
+I am off to bed - but ah!    
+Basho lines the moon    
 

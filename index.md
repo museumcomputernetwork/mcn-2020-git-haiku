@@ -1,4 +1,4 @@
-I am at the MCN    
-How swift it is    
-from looking at the moon.    
+The sea darkening    
+and bring to men a chance to rest    
+With tears.    
 

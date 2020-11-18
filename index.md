@@ -1,4 +1,4 @@
-When you say something,    
-then cry all birds and fishes    
-But he's beautiful!    
+Won't you come and see    
+thoughts come - and there is loneliness;    
+A perfect evening!    
 

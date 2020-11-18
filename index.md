@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
+Old dark sleepy pool    
 The fragrant blossoms remain.    
-Mogami River.    
+How soon it must die.    
 

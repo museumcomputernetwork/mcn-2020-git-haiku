@@ -1,4 +1,4 @@
-Will we meet again    
-stretching over Sado Island    
-are darkened . . .    
+Poverty's child -    
+tolling twilight bell; Temple    
+Of faded daffodils    
 

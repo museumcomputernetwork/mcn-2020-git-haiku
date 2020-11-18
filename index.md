@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-above white    
-Our hungry donkey    
+Now that eyes of hawks    
+spare my little buzzing friends    
+from the kiri tree.    
 

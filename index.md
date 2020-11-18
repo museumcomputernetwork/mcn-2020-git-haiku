@@ -1,4 +1,4 @@
-In the sea-surf edge    
-oh voices of the wild ducks    
-Of warriors’ dreams.    
+Oh, tranquility!    
+that black crow I hate so much    
+Murmuring Mogami    
 

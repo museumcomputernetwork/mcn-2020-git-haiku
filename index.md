@@ -1,4 +1,4 @@
-Here, where a thousand    
-The birds cry, and the fishes’ eyes are     
-and gazes at the moon.    
+First white snow of fall    
+that black crow I hate so much    
+Ueno? Asakura?    
 

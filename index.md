@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-visit the ancestral grave    
-A little woven cape    
+A owner of the old thatched hut    
+Heron's cry    
+Come to rest our necks    
 

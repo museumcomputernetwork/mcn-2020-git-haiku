@@ -1,4 +1,4 @@
-Seas are wild tonight    
-poor monkey, you too could use    
-Among the flowers    
+Learning something new    
+scatters in the night; Now see    
+Murmuring Mogami    
 

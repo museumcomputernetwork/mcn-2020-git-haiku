@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-scatters in the night; Now see    
-Goes plop! Watersplash!    
+This is the new line    
+twin butterflies until, twice white    
+Two white butterflies?    
 

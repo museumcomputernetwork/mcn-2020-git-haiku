@@ -1,4 +1,4 @@
-Must springtime fade?    
-Heron's cry    
-Thanks for the knowledge    
+Wake! The sky is light!    
+All that remains    
+A water-jewel    
 

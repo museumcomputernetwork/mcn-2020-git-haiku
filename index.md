@@ -1,4 +1,4 @@
-The summer grasses.    
-these heavy snow-flakes settling    
-The autumn dusk is here.    
+Oh, tranquility!    
+soup, the salad, fish and all    
+My moonlit pillow    
 

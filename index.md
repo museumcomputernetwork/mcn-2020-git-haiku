@@ -1,4 +1,4 @@
-Seek on high bare trails    
-All that remains    
-This autumn evening.    
+Mountain-rose petals    
+spare my little buzzing friends    
+Muffled by hot rocks    
 

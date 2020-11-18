@@ -1,4 +1,4 @@
-Oh, tranquility!    
-poor monkey, you too could use    
-Of dark loneliness    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+They meet, they mate    
 

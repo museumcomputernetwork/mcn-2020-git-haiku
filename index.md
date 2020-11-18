@@ -1,4 +1,4 @@
-Nine times arising    
-he starts to grind the rice,    
-And evening bell    
+Old dark sleepy pool    
+who spends his little breakfast    
+and gazes at the moon.    
 

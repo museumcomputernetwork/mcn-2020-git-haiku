@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-above white    
-Murmuring Mogami    
+White cloud of mist    
+sky-reflecting violets    
+The autumn dusk is here.    
 

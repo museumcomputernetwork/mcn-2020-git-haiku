@@ -1,4 +1,4 @@
-Mountain-rose petals    
-the scent of flowers floating    
-Cold pale eyes pour tears    
+Won't you come and see    
+starving for fat fish or mice    
+Darting dragon-fly!    
 

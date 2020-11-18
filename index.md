@@ -1,4 +1,4 @@
-The first day of the year:    
-The fragrant blossoms remain.    
-from the kiri tree.    
+In the cicada's cry    
+let us arrange these flowers    
+Mogami River.    
 

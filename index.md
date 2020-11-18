@@ -1,4 +1,4 @@
-Poverty's child -    
-mingling with bright small shells    
-Splash!    
+Ballet in the air    
+loneliness? Just one leaf    
+from looking at the moon.    
 

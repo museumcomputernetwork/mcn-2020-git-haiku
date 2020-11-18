@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-loneliness? Just one leaf    
-Come to rest our necks    
+Dewdrop, let me cleanse    
+falling, falling, falling now    
+cherry-blossoms . . .    
 

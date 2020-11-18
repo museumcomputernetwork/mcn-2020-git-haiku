@@ -1,4 +1,4 @@
-Such utter silence!    
-loneliness? Just one leaf    
-A perfect evening!    
+See: surviving suns    
+Line that won't be deleted    
+A solitary bird    
 

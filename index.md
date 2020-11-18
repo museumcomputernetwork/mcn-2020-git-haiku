@@ -1,4 +1,4 @@
 In the cicada's cry    
-let us arrange these flowers    
-Mogami River.    
+twin butterflies until, twice white    
+Lilies on the rocks    
 

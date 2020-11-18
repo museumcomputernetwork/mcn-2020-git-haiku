@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us arrange these flowers    
-Tall grass their monument    
+Old dark sleepy pool    
+and bring to men a chance to rest    
+Moon-lighted mountains!    
 

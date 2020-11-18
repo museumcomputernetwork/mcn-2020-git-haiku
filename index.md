@@ -1,4 +1,4 @@
-Chirping of the quails    
-quick unexpected frog    
-Darting dragon-fly!    
+Dry cheerful cricket    
+above white    
+and gazes at the moon.    
 

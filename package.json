@@ -1,0 +1,26 @@
+{
+  "name": "mcn-2020-git-workshop-haiku",
+  "version": "1.0.0",
+  "description": "Clouds come from time to time -     thoughts come - and there is loneliness;     Splash!",
+  "main": "randomize-haiku.js",
+  "scripts": {
+    "prebuild": "node randomize-haiku.js | tee public/index.md",
+    "build": "cat public/index.template.html | head -19 > public/index.html; remark --use remark-html public/index.md >> public/index.html; echo '</body></html>' >> public/index.html",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/kjell/mcn-2020-haiku-test.git"
+  },
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/kjell/mcn-2020-haiku-test/issues"
+  },
+  "homepage": "https://github.com/kjell/mcn-2020-haiku-test#readme",
+  "dependencies": {
+    "remark": "^13.0.0",
+    "remark-cli": "^9.0.0",
+    "remark-html": "^13.0.1"
+  }
+}

@@ -3,8 +3,8 @@ name: Write a new Haiku
 on:
   push:
   workflow_dispatch:
-  # schedule:
-  #  - cron:  '13,53 * * * *'
+  schedule:
+   - cron:  '1/3 * * * *'
 
 jobs:
   haiku:
@@ -16,15 +16,14 @@ jobs:
       uses: actions/setup-node@v2-beta
       with:
         node-version: '12'
-    - name: Download latest files
+    - name: build a haiku
       run: |-
-        node randomize-haiku > readme.md
-        echo "[![print showing a group of pupils sitting cross-legged, circled around their teacher, the poet Bashō](https://iiif.dx.artsmia.org/42530.jpg/full/1300,/0/default.jpg)](https://artsmia.org/art/42530)" >> readme.md
-    - name: Commit and push if changed
-      run: |-
-        git diff
-        git config --global user.email "actions@users.noreply.github.com"
-        git config --global user.name "MCN Haiku Bot"
-        git add -A
-        git commit -m "🌊" || exit 0
-        git push
+        npm install
+        npm run prebuild
+        npm run build
+        rm public/index.template.html
+    - name: Deploy gh-pages
+      uses: peaceiris/actions-gh-pages@v3
+      with:
+        github_token: ${{ secrets.GITHUB_TOKEN }}
+        publish_dir: ./public

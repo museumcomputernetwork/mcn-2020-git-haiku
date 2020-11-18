@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-dead leaves alone foregather    
-Bearded, with bent canes    
+The first day of the year:    
+The fragrant blossoms remain.    
+from the kiri tree.    
 

@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-not even a magazine    
-The Autumn wind.    
+Ballet in the air    
+therefore our thanks dark clouds    
+With tears.    
 

@@ -1,4 +1,4 @@
-Ah me! I am one    
-just enough to bend the leaves    
-Tall grass their monument    
+MCN day 5 -    
+not even a magazine    
+But he's beautiful!    
 

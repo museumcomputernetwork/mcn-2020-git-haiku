@@ -1,4 +1,4 @@
-Here, where a thousand    
-then cry all birds and fishes    
-Mogami River.    
+A owner of the old thatched hut    
+above white    
+Murmuring Mogami    
 

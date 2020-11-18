@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-The fragrant blossoms remain.    
-How soon it must die.    
+When you say something,    
+A frog jumps in -    
+Tall grass their monument    
 

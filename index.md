@@ -1,4 +1,4 @@
-An old pond    
-to see the moon, whose solemn pace    
-Mogami River.    
+Mountain-rose petals    
+the scent of flowers floating    
+Cold pale eyes pour tears    
 

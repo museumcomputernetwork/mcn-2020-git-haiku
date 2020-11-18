@@ -1,4 +1,4 @@
-The river gathering may rains    
-How swift it is    
-It’s the Doll’s Festival.    
+Such utter silence!    
+Twilight whippoorwill, whistle on, sweet deepener    
+My moonlit pillow    
 

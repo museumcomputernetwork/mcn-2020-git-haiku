@@ -1,4 +1,4 @@
-Mountain-rose petals    
-spare my little buzzing friends    
-Muffled by hot rocks    
+The first day of the year:    
+who spends his little breakfast    
+Stabs the darkness    
 

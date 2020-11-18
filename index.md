@@ -1,4 +1,4 @@
-Lightning -    
-above white    
-From the kiri tree.    
+Chirping of the quails    
+quick unexpected frog    
+Darting dragon-fly!    
 

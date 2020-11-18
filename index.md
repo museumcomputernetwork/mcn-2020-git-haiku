@@ -1,4 +1,4 @@
-Silent the old town    
-Exhausted from video    
-Stabs the darkness    
+A owner of the old thatched hut    
+not even a magazine    
+The Autumn wind.    
 

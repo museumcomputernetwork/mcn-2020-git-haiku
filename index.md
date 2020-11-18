@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Please don't tell my museum    
-Contemptuous of frost    
+Spring is passing.    
+then cry all birds and fishes    
+Two white butterflies?    
 

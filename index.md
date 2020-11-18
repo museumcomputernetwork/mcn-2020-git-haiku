@@ -1,4 +1,4 @@
-The sea darkening    
-stretching over Sado Island    
-Morning-glory gazing    
+In the sea-surf edge    
+oh voices of the wild ducks    
+Of warriors’ dreams.    
 

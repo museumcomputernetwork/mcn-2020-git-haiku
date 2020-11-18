@@ -1,4 +1,4 @@
-Nine times arising    
+In the twilight rain    
 dead leaves alone foregather    
-But he's beautiful!    
+It’s the Doll’s Festival.    
 

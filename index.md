@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-All that remains    
-A water-jewel    
+Oh, tranquility!    
+poor monkey, you too could use    
+Of dark loneliness    
 

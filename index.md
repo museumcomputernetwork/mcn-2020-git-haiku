@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-from looking at the moon.    
+Seas are wild tonight    
+A frog jumps in -    
+Waterfall music    
 

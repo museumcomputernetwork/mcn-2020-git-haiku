@@ -1,4 +1,4 @@
-Won't you come and see    
-Twilight whippoorwill, whistle on, sweet deepener    
-It’s the Doll’s Festival.    
+The first day of the year:    
+to see the moon, whose solemn pace    
+Contemptuous of frost    
 

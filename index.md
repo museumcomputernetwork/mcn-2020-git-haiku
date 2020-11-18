@@ -1,4 +1,4 @@
-In the twilight rain    
-Heron's cry    
-Seasoned with petals    
+Glorious the moon    
+and bring to men a chance to rest    
+Mogami River.    
 

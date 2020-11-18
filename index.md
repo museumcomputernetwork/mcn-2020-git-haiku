@@ -1,4 +1,4 @@
-The rains of summer join together.    
-spare my little buzzing friends    
-Of warriors’ dreams.    
+Ah me! I am one    
+soup, the salad, fish and all    
+This autumn evening.    
 

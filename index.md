@@ -1,4 +1,4 @@
-The sea darkening    
-and bring to men a chance to rest    
-With tears.    
+Ah me! I am one    
+just enough to bend the leaves    
+Tall grass their monument    
 

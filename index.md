@@ -1,4 +1,4 @@
-Chirping of the quails    
-here at your flowering grave    
-A water-jewel    
+Cloud of cherry-bloom    
+visit the ancestral grave    
+A little woven cape    
 

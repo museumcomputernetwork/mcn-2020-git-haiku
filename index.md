@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-even the crickets' singing    
-And evening bell    
+None is travelling    
+How swift it is    
+and gazes at the moon.    
 

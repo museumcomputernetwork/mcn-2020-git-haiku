@@ -1,4 +1,4 @@
-Ballet in the air    
-falling, falling, falling now    
-Darting dragon-fly!    
+Nine times arising    
+There's no sign that can foretell    
+They meet, they mate    
 

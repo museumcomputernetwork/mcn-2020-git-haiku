@@ -1,4 +1,4 @@
-Lightning -    
-captains swore grand conquest    
-A butterfly floats and balances    
+Temple bells die out.    
+tolling twilight bell; Temple    
+These dark hands of life    
 

@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-soup, the salad, fish and all    
-But he's beautiful!    
+Dawn-shining mountains    
+and bring to men a chance to rest    
+A perfect evening!    
 

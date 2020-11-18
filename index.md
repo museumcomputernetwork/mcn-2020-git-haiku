@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-They meet, they mate    
+Ah me! I am one    
+he starts to grind the rice,    
+and gazes at the moon.    
 

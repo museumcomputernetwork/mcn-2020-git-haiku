@@ -1,4 +1,4 @@
-White cloud of mist    
-sky-reflecting violets    
-The autumn dusk is here.    
+The rains of summer join together.    
+I am off to bed - but ah!    
+are darkened . . .    
 

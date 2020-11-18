@@ -1,4 +1,4 @@
-Ballet in the air    
-loneliness? Just one leaf    
-from looking at the moon.    
+Cloud of cherry-bloom    
+A frog jumps in -    
+are darkened . . .    
 

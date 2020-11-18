@@ -1,4 +1,4 @@
-The first day of the year:    
-to see the moon, whose solemn pace    
-Contemptuous of frost    
+No oil to read by    
+starving for fat fish or mice    
+Tall grass their monument    
 

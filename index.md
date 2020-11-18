@@ -1,4 +1,4 @@
-None is travelling    
-How swift it is    
-and gazes at the moon.    
+Bright red pepper-pod    
+the scent of flowers floating    
+How soon it must die.    
 

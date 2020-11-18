@@ -1,4 +1,4 @@
-Spring is passing.    
+Camellia-petal    
 who spends his little breakfast    
-Marks only midnight yet    
+Like our tendrilled life    
 

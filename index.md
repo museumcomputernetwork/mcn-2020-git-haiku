@@ -1,4 +1,4 @@
-Too curious flower    
-he starts to grind the rice,    
-Ueno? Asakura?    
+Seek on high bare trails    
+scatters in the night; Now see    
+With tears.    
 

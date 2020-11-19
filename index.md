@@ -1,4 +1,4 @@
-Lightning -    
-loneliness? Just one leaf    
-Cold pale eyes pour tears    
+Must springtime fade?    
+The fragrant blossoms remain.    
+from looking at the moon.    
 

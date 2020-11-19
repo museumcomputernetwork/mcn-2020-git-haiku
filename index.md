@@ -1,4 +1,4 @@
 Dawn-shining mountains    
-and bring to men a chance to rest    
-Thanks for the knowledge    
+spare my little buzzing friends    
+Since there is no rice    
 

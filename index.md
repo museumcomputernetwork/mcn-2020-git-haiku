@@ -1,4 +1,4 @@
-This is the new line    
-Heron's cry    
-A little woven cape    
+Oh, tranquility!    
+it needs but shiny wings and look    
+are darkened    
 

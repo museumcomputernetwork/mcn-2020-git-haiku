@@ -1,4 +1,4 @@
-Poverty's child -    
-The lips feel cold.    
-Lilies on the rocks    
+snow falling soon now    
+Penetrating the very rock,    
+The autumn dusk is here.    
 

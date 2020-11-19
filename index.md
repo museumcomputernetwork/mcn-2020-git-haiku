@@ -1,4 +1,4 @@
-Too curious flower    
-and bring to men a chance to rest    
-Murmuring Mogami    
+Ah me! I am one    
+he starts to grind the rice,    
+Or backyard love?    
 

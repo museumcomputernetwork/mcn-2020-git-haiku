@@ -1,4 +1,4 @@
-The sea darkening    
-let us to the road again    
-Thanks for the knowledge    
+The first day of the year:    
+stretching over Sado Island    
+Darting dragon-fly!    
 

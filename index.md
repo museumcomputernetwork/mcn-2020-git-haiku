@@ -1,4 +1,4 @@
-This snowy morning    
-The birds cry, and the fishes’ eyes are     
-My moonlit pillow    
+I am at the MCN    
+The fragrant blossoms remain.    
+Basho lines the moon    
 

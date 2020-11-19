@@ -1,4 +1,4 @@
 An old pond    
-network is awesome for tea-    
-How soon it must die.    
+and bring to men a chance to rest    
+These dark hands of life    
 

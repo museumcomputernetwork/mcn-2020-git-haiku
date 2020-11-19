@@ -1,4 +1,4 @@
-No oil to read by    
-starving for fat fish or mice    
-but inside, coffee    
+White cloud of mist    
+All that remains    
+This autumn evening.    
 

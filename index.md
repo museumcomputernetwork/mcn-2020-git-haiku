@@ -1,4 +1,4 @@
-Swallow in the dusk    
-above white    
-Of faded daffodils    
+The first day of the year:    
+We can learn so many things,    
+-ching me new tech skills!    
 

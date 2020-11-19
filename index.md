@@ -1,4 +1,4 @@
-When you say something,    
-then cry all birds and fishes    
-Companion butterfly!    
+Oh, tranquility!    
+Line that won't be deleted    
+Splash!    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-therefore our thanks dark clouds    
-are darkened . . .    
+Poverty's child -    
+The lips feel cold.    
+Lilies on the rocks    
 

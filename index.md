@@ -1,4 +1,4 @@
-Poverty's child -    
-and bring to men a chance to rest    
-Darting dragon-fly!    
+None is travelling    
+stretching over Sado Island    
+How soon it must die.    
 

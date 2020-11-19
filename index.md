@@ -1,4 +1,4 @@
-An old pond    
+Poverty's child -    
 and bring to men a chance to rest    
-These dark hands of life    
+Darting dragon-fly!    
 

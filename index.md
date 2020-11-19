@@ -1,4 +1,4 @@
-This is the new line    
-How swift it is    
-and gazes at the moon.    
+A owner of the old thatched hut    
+not even a magazine    
+How soon it must die.    
 

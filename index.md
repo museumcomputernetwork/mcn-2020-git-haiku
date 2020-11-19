@@ -1,4 +1,4 @@
-Lightning -    
-these heavy snow-flakes settling    
-A perfect evening!    
+museum computer    
+to see the moon, whose solemn pace    
+With tears.    
 

@@ -1,4 +1,4 @@
-Swallow in the dusk    
+Here, where a thousand    
 twin butterflies until, twice white    
-Mogami River.    
+A butterfly floats and balances    
 

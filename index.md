@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-spare my little buzzing friends    
-Since there is no rice    
+This snowy morning    
+The birds cry, and the fishes’ eyes are     
+My moonlit pillow    
 

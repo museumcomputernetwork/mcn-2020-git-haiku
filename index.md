@@ -1,4 +1,4 @@
-Poverty's child -    
-above white    
-With tears.    
+Now that eyes of hawks    
+Please don't tell my museum    
+Bush-clover petals    
 

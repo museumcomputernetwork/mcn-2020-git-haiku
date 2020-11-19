@@ -1,4 +1,4 @@
-Daylight is here now    
-tolling twilight bell; Temple    
-I need a coffee    
+When you say something,    
+Please don't tell my museum    
+Tall grass their monument    
 

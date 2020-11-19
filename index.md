@@ -1,4 +1,4 @@
-snow falling soon now    
-Penetrating the very rock,    
-The autumn dusk is here.    
+MCN day 5 -    
+thoughts come - and there is loneliness;    
+Like our tendrilled life    
 

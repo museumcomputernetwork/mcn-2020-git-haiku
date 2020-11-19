@@ -1,4 +1,4 @@
-Lady butterfly    
-poor monkey, you too could use    
-Splash!    
+If there were fragrance    
+even the crickets' singing    
+Contemptuous of frost    
 

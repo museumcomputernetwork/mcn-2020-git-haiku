@@ -1,4 +1,4 @@
-Such utter silence!    
-from cold streamlets for the sea    
-Basho lines the moon    
+Too curious flower    
+and bring to men a chance to rest    
+Murmuring Mogami    
 

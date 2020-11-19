@@ -1,4 +1,4 @@
-I am at the MCN    
-The fragrant blossoms remain.    
-Basho lines the moon    
+Temple bells die out.    
+in dusky night    
+A water-jewel    
 

@@ -1,4 +1,4 @@
-Temple bells die out.    
-quick unexpected frog    
-Mogami River.    
+Lady butterfly    
+poor monkey, you too could use    
+Splash!    
 

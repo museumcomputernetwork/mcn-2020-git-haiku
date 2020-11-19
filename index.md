@@ -1,4 +1,4 @@
-If there were fragrance    
-even the crickets' singing    
-Contemptuous of frost    
+Temple bells die out.    
+that black crow I hate so much    
+A perfect evening!    
 

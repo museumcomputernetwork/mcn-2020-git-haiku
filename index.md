@@ -1,4 +1,4 @@
-MCN '20    
-Penetrating the very rock,    
-From the kiri tree.    
+Cold first winter rain    
+he starts to grind the rice,    
+A cicada’s voice.    
 

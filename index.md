@@ -1,4 +1,4 @@
-Such utter silence!    
-Please don't tell my museum    
-Seasoned with petals    
+Seek on high bare trails    
+The lips feel cold.    
+And evening bell    
 

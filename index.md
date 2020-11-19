@@ -1,4 +1,4 @@
-None is travelling    
-stretching over Sado Island    
-How soon it must die.    
+Imaging skills flow    
+A frog jumps in -    
+Like Git and haikus!    
 

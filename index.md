@@ -1,4 +1,4 @@
-Poverty's child -    
-like ripple on the water    
-And evening bell    
+No oil to read by    
+starving for fat fish or mice    
+but inside, coffee    
 

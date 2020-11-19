@@ -1,4 +1,4 @@
-See: surviving suns    
-There's no sign that can foretell    
-Cherry-blossoms    
+The first day of the year:    
+dead leaves alone foregather    
+Moon-lighted mountains!    
 

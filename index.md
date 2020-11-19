@@ -1,4 +1,4 @@
-Must springtime fade?    
-The fragrant blossoms remain.    
-from looking at the moon.    
+The sea darkening    
+let us to the road again    
+Thanks for the knowledge    
 

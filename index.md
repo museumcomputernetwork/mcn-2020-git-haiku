@@ -1,4 +1,4 @@
-Seek on high bare trails    
-The lips feel cold.    
-And evening bell    
+Learning something new    
+Twilight whippoorwill, whistle on, sweet deepener    
+How soon it must die.    
 

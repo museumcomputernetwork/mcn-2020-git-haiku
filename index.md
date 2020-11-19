@@ -1,4 +1,4 @@
-In the sea-surf edge    
-even the crickets' singing    
-Moon-lighted mountains!    
+Dawn-shining mountains    
+and bring to men a chance to rest    
+Thanks for the knowledge    
 

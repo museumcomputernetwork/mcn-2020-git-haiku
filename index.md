@@ -1,4 +1,4 @@
-Ah me! I am one    
-he starts to grind the rice,    
-Or backyard love?    
+When you say something,    
+then cry all birds and fishes    
+Companion butterfly!    
 

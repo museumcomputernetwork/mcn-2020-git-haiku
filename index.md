@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Penetrating the very rock,    
-Cold pale eyes pour tears    
+Imaging skills flow    
+There's no sign that can foretell    
+And evening bell    
 

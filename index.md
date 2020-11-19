@@ -1,4 +1,4 @@
-Lady butterfly    
-falling, falling, falling now    
-email confirmation demands met    
+Oh, tranquility!    
+is quieted with creepers    
+Of warriors’ dreams.    
 

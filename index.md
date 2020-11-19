@@ -1,4 +1,4 @@
-Imaging skills flow    
-A frog jumps in -    
-Like Git and haikus!    
+Lightning -    
+these heavy snow-flakes settling    
+A perfect evening!    
 

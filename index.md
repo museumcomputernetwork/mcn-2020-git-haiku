@@ -1,4 +1,4 @@
-MCN day 5 -    
-fell in silent dawn, spilling    
-Splash!    
+Temple bells die out.    
+quick unexpected frog    
+Mogami River.    
 

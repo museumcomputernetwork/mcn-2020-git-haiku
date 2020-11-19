@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
+Under cherry-trees    
 The fragrant blossoms remain.    
-A lovely sunset    
+Contemptuous of frost    
 

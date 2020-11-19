@@ -1,4 +1,4 @@
-Must springtime fade?    
-captains swore grand conquest    
-the autumn dusk is here.    
+Dewdrop, let me cleanse    
+he starts to grind the rice,    
+email confirmation demands met    
 

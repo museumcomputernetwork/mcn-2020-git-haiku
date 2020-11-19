@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-to see the moon, whose solemn pace    
-Stabs the darkness    
+No oil to read by    
+starving for fat fish or mice    
+Tall grass their monument    
 

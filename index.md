@@ -1,4 +1,4 @@
-First white snow of fall    
-let us arrange these flowers    
-Stabs the darkness    
+Wake! The sky is light!    
+dead leaves alone foregather    
+email confirmation demands met    
 

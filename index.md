@@ -1,4 +1,4 @@
-Poverty's child -    
-mingling with bright small shells    
-Two white butterflies?    
+Ballet in the air    
+soup, the salad, fish and all    
+are darkened    
 

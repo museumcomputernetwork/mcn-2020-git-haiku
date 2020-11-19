@@ -1,4 +1,4 @@
-When you say something,    
-Please don't tell my museum    
-Tall grass their monument    
+In the cicada's cry    
+A frog jumps in -    
+And so it must be    
 

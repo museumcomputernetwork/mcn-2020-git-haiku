@@ -1,4 +1,4 @@
-Carven gods long gone    
-not even a magazine    
-Silent clouds of stars    
+No oil to read by    
+these heavy snow-flakes settling    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-All that remains    
-Of warriors’ dreams.    
+Learning something new    
+in dusky night    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-falling, falling, falling now    
-It’s the Doll’s Festival.    
+The river gathering may rains    
+Exhausted from video    
+The autumn dusk is here.    
 

@@ -1,4 +1,4 @@
-MCN '20    
-it needs but shiny wings and look    
-Cold pale eyes pour tears    
+Cold first winter rain    
+soup, the salad, fish and all    
+Splash!    
 

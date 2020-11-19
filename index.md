@@ -1,4 +1,4 @@
-When you say something,    
-in dusky night    
-It’s the Doll’s Festival.    
+No oil to read by    
+Penetrating the very rock,    
+But he's beautiful!    
 

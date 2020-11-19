@@ -1,4 +1,4 @@
-Daylight is here now    
-therefore our thanks dark clouds    
-Morning-glory gazing    
+Spring is passing.    
+above white    
+And so it must be    
 

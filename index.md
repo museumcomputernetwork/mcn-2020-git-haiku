@@ -1,4 +1,4 @@
-No oil to read by    
-Penetrating the very rock,    
-But he's beautiful!    
+None is travelling    
+The lips feel cold.    
+How soon it must die.    
 

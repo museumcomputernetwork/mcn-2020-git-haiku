@@ -1,4 +1,4 @@
-Won't you come and see    
-watching us pass, met death    
-to read while you wait    
+Will we meet again    
+that black crow I hate so much    
+Lilies on the rocks    
 

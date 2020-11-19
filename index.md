@@ -1,4 +1,4 @@
-Cold first winter rain    
-he starts to grind the rice,    
-A cicada’s voice.    
+exciting conference day    
+even the crickets' singing    
+The autumn dusk is here.    
 

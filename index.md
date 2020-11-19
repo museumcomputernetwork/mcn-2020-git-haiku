@@ -1,4 +1,4 @@
-Spring is passing.    
-visit the ancestral grave    
-A butterfly floats and balances    
+Poverty's child -    
+mingling with bright small shells    
+Two white butterflies?    
 

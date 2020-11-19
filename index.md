@@ -1,4 +1,4 @@
-The river gathering may rains    
-Exhausted from video    
-The autumn dusk is here.    
+MCN day 5 -    
+fell in silent dawn, spilling    
+Merge conflicts haunt me    
 

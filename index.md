@@ -1,4 +1,4 @@
-Ballet in the air    
-soup, the salad, fish and all    
-are darkened    
+Clouds come from time to time -    
+above white    
+Come to rest our necks    
 

@@ -1,4 +1,4 @@
-museum computer    
-to see the moon, whose solemn pace    
-With tears.    
+Seek on high bare trails    
+and bring to men a chance to rest    
+Murmuring Mogami    
 

@@ -1,4 +1,4 @@
-the zoom waiting room    
-Heron's cry    
-Bush-clover petals    
+Oh, tranquility!    
+All that remains    
+Of warriors’ dreams.    
 

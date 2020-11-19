@@ -1,4 +1,4 @@
-In the twilight rain    
-perfumes her wings by floating    
-Of dark loneliness    
+The summer grasses.    
+falling, falling, falling now    
+It’s the Doll’s Festival.    
 

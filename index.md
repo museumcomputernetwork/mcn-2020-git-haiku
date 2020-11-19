@@ -1,4 +1,4 @@
-The summer grasses.    
-even the crickets' singing    
-Our hungry donkey    
+Bright red pepper-pod    
+not even a magazine    
+It’s the Doll’s Festival.    
 

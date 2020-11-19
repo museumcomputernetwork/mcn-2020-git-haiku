@@ -1,4 +1,4 @@
-the zoom waiting room    
-in dusky night    
-Ueno? Asakura?    
+Cold first winter rain    
+that black crow I hate so much    
+Come to rest our necks    
 

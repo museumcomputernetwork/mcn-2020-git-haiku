@@ -1,4 +1,4 @@
-The first day of the year:    
-We can learn so many things,    
--ching me new tech skills!    
+the zoom waiting room    
+Heron's cry    
+Bush-clover petals    
 

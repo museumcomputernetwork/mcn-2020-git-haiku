@@ -1,4 +1,4 @@
-Learning something new    
-in dusky night    
-A perfect evening!    
+In the twilight rain    
+perfumes her wings by floating    
+Of dark loneliness    
 

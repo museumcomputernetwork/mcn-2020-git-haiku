@@ -1,4 +1,4 @@
-Under cherry-trees    
-The fragrant blossoms remain.    
-Contemptuous of frost    
+Dawn-shining mountains    
+to see the moon, whose solemn pace    
+Stabs the darkness    
 

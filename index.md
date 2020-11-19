@@ -1,4 +1,4 @@
-MCN day 5 -    
-fell in silent dawn, spilling    
-Merge conflicts haunt me    
+Spring is passing.    
+visit the ancestral grave    
+A butterfly floats and balances    
 

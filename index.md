@@ -1,4 +1,4 @@
-White cloud of mist    
-just enough to bend the leaves    
-Cold pale eyes pour tears    
+For a lovely bowl    
+Here along this way but I,    
+These dark hands of life    
 

@@ -1,4 +1,4 @@
-Learning something new    
-Twilight whippoorwill, whistle on, sweet deepener    
+An old pond    
+network is awesome for tea-    
 How soon it must die.    
 

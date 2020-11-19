@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Is also changed to another    
-email confirmation demands met    
+White cloud of mist    
+Here along this way but I,    
+Of faded daffodils    
 

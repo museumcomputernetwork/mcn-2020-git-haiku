@@ -1,4 +1,4 @@
-Will we meet again    
-that black crow I hate so much    
-Lilies on the rocks    
+Swallow in the dusk    
+twin butterflies until, twice white    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-network is awesome for tea-    
-Splash!    
+Such utter silence!    
+from cold streamlets for the sea    
+Basho lines the moon    
 

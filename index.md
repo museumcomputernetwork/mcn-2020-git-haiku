@@ -1,4 +1,4 @@
-the zoom waiting room    
-the scent of flowers floating    
-About this ignite    
+Too curious flower    
+All that remains    
+Or backyard love?    
 

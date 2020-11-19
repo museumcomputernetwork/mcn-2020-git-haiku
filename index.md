@@ -1,4 +1,4 @@
-Seek on high bare trails    
-and bring to men a chance to rest    
-Murmuring Mogami    
+Spring is passing.    
+therefore our thanks dark clouds    
+are darkened . . .    
 

@@ -1,4 +1,4 @@
-Too curious flower    
-All that remains    
-Or backyard love?    
+The rains of summer join together.    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 

@@ -1,4 +1,4 @@
-No oil to read by    
-starving for fat fish or mice    
-Tall grass their monument    
+Daylight is here now    
+therefore our thanks dark clouds    
+Morning-glory gazing    
 

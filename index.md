@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-it needs but shiny wings and look    
-Mountain-top jewels    
+The sea darkening    
+spare my little buzzing friends    
+-ching me new tech skills!    
 

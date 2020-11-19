@@ -1,4 +1,4 @@
-Temple bells die out.    
-that black crow I hate so much    
-A perfect evening!    
+Camellia-petal    
+and bring to men a chance to rest    
+Stabs the darkness    
 

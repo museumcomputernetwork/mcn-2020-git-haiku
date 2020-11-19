@@ -1,4 +1,4 @@
-MCN day 5 -    
-thoughts come - and there is loneliness;    
-Like our tendrilled life    
+Won't you come and see    
+watching us pass, met death    
+to read while you wait    
 

@@ -1,4 +1,4 @@
-Cold first winter rain    
-that black crow I hate so much    
-Come to rest our necks    
+Clouds come from time to time -    
+An herbal tea, sit, listen    
+Of faded daffodils    
 

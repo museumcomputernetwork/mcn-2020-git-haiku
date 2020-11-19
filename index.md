@@ -1,4 +1,4 @@
-Oh, tranquility!    
-it needs but shiny wings and look    
-are darkened    
+Bright red pepper-pod    
+network is awesome for tea-    
+Splash!    
 

@@ -1,4 +1,4 @@
-Glorious the moon    
-chirping, keeps the autumn gay    
-Waterfall music    
+Swallow in the dusk    
+above white    
+Of faded daffodils    
 

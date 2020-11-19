@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-An herbal tea, sit, listen    
-Of faded daffodils    
+The sea darkening    
+Here along this way but I,    
+Ueno? Asakura?    
 

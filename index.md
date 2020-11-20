@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-A frog jumps in -    
-Darting dragon-fly!    
+Temple bells die out.    
+The fragrant blossoms remain.    
+But he's beautiful!    
 

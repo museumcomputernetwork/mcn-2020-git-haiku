@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Here along this way but I,    
-Seasoned with petals    
+Seas are wild tonight    
+Please don't tell my museum    
+Among the flowers    
 

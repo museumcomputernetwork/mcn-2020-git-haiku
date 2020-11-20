@@ -1,4 +1,4 @@
-An old pond    
-and bring to men a chance to rest    
-With tears.    
+Will we meet again    
+There's no sign that can foretell    
+Or backyard love?    
 

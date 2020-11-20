@@ -1,4 +1,4 @@
-Nine times arising    
-Is also changed to another    
-to read while you wait    
+Seek on high bare trails    
+fell in silent dawn, spilling    
+But he's beautiful!    
 

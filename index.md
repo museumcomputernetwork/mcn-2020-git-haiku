@@ -1,4 +1,4 @@
-The summer grasses.    
-Penetrating the very rock,    
-Tall grass their monument    
+Poverty's child -    
+creating git hub hides    
+Bush-clover petals    
 

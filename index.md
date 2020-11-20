@@ -1,4 +1,4 @@
-the zoom waiting room    
-dead leaves alone foregather    
-From the kiri tree.    
+An old pond    
+and bring to men a chance to rest    
+With tears.    
 

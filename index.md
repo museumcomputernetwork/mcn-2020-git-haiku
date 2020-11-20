@@ -1,4 +1,4 @@
-White cloud of mist    
-Penetrating the very rock,    
-are darkened    
+First white snow of fall    
+from cold streamlets for the sea    
+Companion butterfly!    
 

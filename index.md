@@ -1,4 +1,4 @@
-the zoom waiting room    
-falling, falling, falling now    
-A butterfly floats and balances    
+Carven gods long gone    
+that black crow I hate so much    
+to read while you wait    
 

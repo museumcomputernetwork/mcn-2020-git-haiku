@@ -1,4 +1,4 @@
-In the twilight rain    
-these heavy snow-flakes settling    
-Murmuring Mogami    
+Nine times arising    
+Is also changed to another    
+to read while you wait    
 

@@ -1,4 +1,4 @@
-Will we meet again    
-There's no sign that can foretell    
-Or backyard love?    
+This is a haiku    
+captains swore grand conquest    
+Muffled by hot rocks    
 

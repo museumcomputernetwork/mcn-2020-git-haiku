@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-the scent of flowers floating    
-Or backyard love?    
+Oh, tranquility!    
+Here along this way but I,    
+Seasoned with petals    
 

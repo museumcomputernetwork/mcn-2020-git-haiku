@@ -1,4 +1,4 @@
-Seek on high bare trails    
-fell in silent dawn, spilling    
-But he's beautiful!    
+White cloud of mist    
+Penetrating the very rock,    
+are darkened    
 

@@ -1,4 +1,4 @@
-Temple bells die out.    
-The fragrant blossoms remain.    
-But he's beautiful!    
+The summer grasses.    
+Penetrating the very rock,    
+Tall grass their monument    
 

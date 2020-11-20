@@ -1,4 +1,4 @@
-Carven gods long gone    
-that black crow I hate so much    
-to read while you wait    
+the zoom waiting room    
+dead leaves alone foregather    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-First white snow of fall    
-from cold streamlets for the sea    
+Ah me! I am one    
+thoughts come - and there is loneliness;    
 Companion butterfly!    
 

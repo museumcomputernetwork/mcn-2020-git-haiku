@@ -1,4 +1,4 @@
-The summer grasses.    
-poor monkey, you too could use    
-and gazes at the moon.    
+Spring is passing.    
+then cry all birds and fishes    
+And evening bell    
 

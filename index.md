@@ -1,4 +1,4 @@
-Here, where a thousand    
-twin butterflies until, twice white    
-A butterfly floats and balances    
+Cloud of cherry-bloom    
+A frog jumps in -    
+Darting dragon-fly!    
 

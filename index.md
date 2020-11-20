@@ -1,4 +1,4 @@
-Spring is passing.    
-then cry all birds and fishes    
-And evening bell    
+In the twilight rain    
+these heavy snow-flakes settling    
+Murmuring Mogami    
 

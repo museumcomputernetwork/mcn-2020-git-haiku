@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Please don't tell my museum    
-Among the flowers    
+Poverty's child -    
+All that remains    
+I need a coffee    
 

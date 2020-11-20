@@ -1,4 +1,4 @@
-Ah me! I am one    
-thoughts come - and there is loneliness;    
-Companion butterfly!    
+the zoom waiting room    
+falling, falling, falling now    
+A butterfly floats and balances    
 

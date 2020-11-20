@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-Waterfall music    
+The summer grasses.    
+poor monkey, you too could use    
+and gazes at the moon.    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-creating git hub hides    
-Bush-clover petals    
+Dawn-shining mountains    
+the scent of flowers floating    
+Or backyard love?    
 

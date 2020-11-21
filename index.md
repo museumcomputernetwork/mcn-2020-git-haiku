@@ -1,4 +1,4 @@
-Such utter silence!    
-Here along this way but I,    
-Splash!    
+See: surviving suns    
+All that remains    
+Muffled by hot rocks    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Please don't tell my museum    
-Waterfall music    
+Temple bells die out.    
+Heron's cry    
+Among the flowers    
 

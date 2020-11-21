@@ -1,4 +1,4 @@
-Black cloudbank broken    
-therefore our thanks dark clouds    
-how interesting    
+Nine times arising    
+How swift it is    
+CHI turns seventeen    
 

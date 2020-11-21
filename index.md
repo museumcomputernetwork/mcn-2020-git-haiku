@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-Ueno? Asakura?    
+This is the new line    
+above white    
+With tears.    
 

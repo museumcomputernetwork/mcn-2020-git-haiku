@@ -1,4 +1,4 @@
-Won't you come and see    
-adventure awaits outside    
-Among the flowers    
+No oil to read by    
+I must work and attend MCN    
+Of warriors’ dreams.    
 

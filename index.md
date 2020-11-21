@@ -1,4 +1,4 @@
-Now the swinging bridge    
-poor monkey, you too could use    
-Bearded, with bent canes    
+None is travelling    
+falling, falling, falling now    
+Cold pale eyes pour tears    
 

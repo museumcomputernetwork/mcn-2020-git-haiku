@@ -1,4 +1,4 @@
-Nine times arising    
-How swift it is    
+Clouds come from time to time -    
+spare my little buzzing friends    
 CHI turns seventeen    
 

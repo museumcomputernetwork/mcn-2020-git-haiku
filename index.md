@@ -1,4 +1,4 @@
-Temple bells die out.    
-Heron's cry    
-Among the flowers    
+An old pond    
+perfumes her wings by floating    
+This autumn evening.    
 

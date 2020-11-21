@@ -1,4 +1,4 @@
-No oil to read by    
-I must work and attend MCN    
-Of warriors’ dreams.    
+Now the swinging bridge    
+even the crickets' singing    
+Seasoned with petals    
 

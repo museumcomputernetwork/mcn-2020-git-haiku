@@ -1,4 +1,4 @@
-This is the new line    
-above white    
-With tears.    
+Chirping of the quails    
+Heron's cry    
+But he's beautiful!    
 

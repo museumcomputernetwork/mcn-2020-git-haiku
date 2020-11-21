@@ -1,4 +1,4 @@
-Lightning -    
-The fragrant blossoms remain.    
-The sun scatters    
+Indoors wintertime    
+in your brief sweet waters    
+Two white butterflies?    
 

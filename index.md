@@ -1,4 +1,4 @@
-Chirping of the quails    
-Heron's cry    
-But he's beautiful!    
+Lightning -    
+The fragrant blossoms remain.    
+The sun scatters    
 

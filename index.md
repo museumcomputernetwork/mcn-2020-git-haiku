@@ -1,4 +1,4 @@
-Too curious flower    
-mingling with bright small shells    
-The sun scatters    
+No oil to read by    
+network is awesome for tea-    
+Lilies on the rocks    
 

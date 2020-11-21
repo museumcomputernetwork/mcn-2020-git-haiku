@@ -1,4 +1,4 @@
-The river gathering may rains    
-in dusky night    
-Cold pale eyes pour tears    
+Such utter silence!    
+Here along this way but I,    
+Splash!    
 

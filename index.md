@@ -1,4 +1,4 @@
-An old pond    
-perfumes her wings by floating    
-This autumn evening.    
+The river gathering may rains    
+in dusky night    
+Cold pale eyes pour tears    
 

@@ -1,4 +1,4 @@
-No oil to read by    
-let us to the road again    
-Like Git and haikus!    
+Now the swinging bridge    
+poor monkey, you too could use    
+Bearded, with bent canes    
 

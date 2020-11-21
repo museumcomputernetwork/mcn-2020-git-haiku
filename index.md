@@ -1,4 +1,4 @@
-No oil to read by    
-network is awesome for tea-    
-Lilies on the rocks    
+Black cloudbank broken    
+therefore our thanks dark clouds    
+how interesting    
 

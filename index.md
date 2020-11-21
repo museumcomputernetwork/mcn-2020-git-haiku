@@ -1,4 +1,4 @@
-Now the swinging bridge    
-even the crickets' singing    
-Seasoned with petals    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+Ueno? Asakura?    
 

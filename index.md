@@ -1,4 +1,4 @@
-Indoors wintertime    
-in your brief sweet waters    
-Two white butterflies?    
+Glorious the moon    
+quick unexpected frog    
+Crying, whirling, white    
 

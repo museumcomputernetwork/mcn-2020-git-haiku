@@ -1,4 +1,4 @@
-None is travelling    
-falling, falling, falling now    
-Cold pale eyes pour tears    
+Won't you come and see    
+adventure awaits outside    
+Among the flowers    
 

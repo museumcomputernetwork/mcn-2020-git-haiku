@@ -1,4 +1,4 @@
-Black cloudbank broken    
-A frog jumps in -    
-How soon it must die.    
+Temple bells die out.    
+from cold streamlets for the sea    
+from looking at the moon.    
 

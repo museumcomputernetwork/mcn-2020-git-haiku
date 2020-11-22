@@ -1,4 +1,4 @@
-Spring is passing.    
-Tiffany Sprague edits books    
-A butterfly floats and balances    
+An old pond    
+like ripple on the water    
+Contemptuous of frost    
 

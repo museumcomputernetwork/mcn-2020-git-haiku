@@ -1,4 +1,4 @@
-Temple bells die out.    
-from cold streamlets for the sea    
-from looking at the moon.    
+Spring is passing.    
+Tiffany Sprague edits books    
+A butterfly floats and balances    
 

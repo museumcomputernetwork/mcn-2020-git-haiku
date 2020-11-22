@@ -1,4 +1,4 @@
-Too curious flower    
-soup, the salad, fish and all    
-Morning-glory gazing    
+Clouds come from time to time -    
+just enough to bend the leaves    
+A cicada’s voice.    
 

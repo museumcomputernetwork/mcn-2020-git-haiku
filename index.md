@@ -1,4 +1,4 @@
-Glorious the moon    
-falling, falling, falling now    
-Contemptuous of frost    
+Cold first winter rain    
+Heron's cry    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-High up in the trees    
-oh voices of the wild ducks    
-A little woven cape    
+Seas are wild tonight    
+fell in silent dawn, spilling    
+The autumn dusk is here.    
 

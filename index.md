@@ -1,4 +1,4 @@
-Now in sad autumn    
-who spends his little breakfast    
-Mountain-top jewels    
+Too curious flower    
+soup, the salad, fish and all    
+Morning-glory gazing    
 

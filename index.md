@@ -1,4 +1,4 @@
-White cloud of mist    
-like ripple on the water    
-email confirmation demands met    
+None is travelling    
+loneliness? Just one leaf    
+I need a coffee    
 

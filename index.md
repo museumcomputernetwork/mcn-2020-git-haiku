@@ -1,4 +1,4 @@
-The sea darkening    
-in your brief sweet waters    
-Goes plop! Watersplash!    
+Black cloudbank broken    
+A frog jumps in -    
+How soon it must die.    
 

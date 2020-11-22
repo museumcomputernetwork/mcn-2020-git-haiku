@@ -1,4 +1,4 @@
-Glorious the moon    
-these heavy snow-flakes settling    
-The Autumn wind.    
+None is travelling    
+All that remains    
+Muffled by hot rocks    
 

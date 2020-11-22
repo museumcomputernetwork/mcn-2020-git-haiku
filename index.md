@@ -1,4 +1,4 @@
-None is travelling    
-All that remains    
-Muffled by hot rocks    
+This is a haiku    
+in dusky night    
+Splash!    
 

@@ -1,4 +1,4 @@
-Cold first winter rain    
-Heron's cry    
-Mogami River.    
+Glorious the moon    
+these heavy snow-flakes settling    
+The Autumn wind.    
 

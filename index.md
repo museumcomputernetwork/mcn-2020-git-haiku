@@ -1,4 +1,4 @@
-An old pond    
-like ripple on the water    
-Contemptuous of frost    
+Won't you come and see    
+these brilliant-hued hibiscus    
+Mountain-top jewels    
 

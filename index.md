@@ -1,4 +1,4 @@
-This is a haiku    
-in dusky night    
-Splash!    
+High up in the trees    
+oh voices of the wild ducks    
+A little woven cape    
 

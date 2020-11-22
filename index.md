@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-spare my little buzzing friends    
-CHI turns seventeen    
+White cloud of mist    
+like ripple on the water    
+email confirmation demands met    
 

@@ -1,4 +1,4 @@
-None is travelling    
-loneliness? Just one leaf    
-I need a coffee    
+Now in sad autumn    
+who spends his little breakfast    
+Mountain-top jewels    
 

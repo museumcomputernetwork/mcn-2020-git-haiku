@@ -1,4 +1,4 @@
-Won't you come and see    
-these brilliant-hued hibiscus    
-Mountain-top jewels    
+The rains of summer join together.    
+I am off to bed - but ah!    
+Since there is no rice    
 

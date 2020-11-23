@@ -1,4 +1,4 @@
-Poverty's child -    
-I must work and attend MCN    
--ching me new tech skills!    
+hello and how are we    
+these heavy snow-flakes settling    
+And evening bell    
 

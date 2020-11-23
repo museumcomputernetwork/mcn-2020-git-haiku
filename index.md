@@ -1,4 +1,4 @@
-This snowy morning    
-Tiffany Sprague edits books    
-Thanks for the knowledge    
+In the sea-surf edge    
+A frog jumps in -    
+Marks only midnight yet    
 

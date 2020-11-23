@@ -1,4 +1,4 @@
-Silent the old town    
-falling, falling, falling now    
-How soon it must die.    
+High up in the trees    
+spare my little buzzing friends    
+It’s the Doll’s Festival.    
 

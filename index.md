@@ -1,4 +1,4 @@
-Carven gods long gone    
-Penetrating the very rock,    
-from the kiri tree.    
+Now in sad autumn    
+let us to the road again    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-White cloud of mist    
-captains swore grand conquest    
-Cold pale eyes pour tears    
+Ah me! I am one    
+There's no sign that can foretell    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-In the cicada's cry    
-is quieted with creepers    
-cherry-blossoms . . .    
+Spring is passing.    
+scatters in the night; Now see    
+Of warriors’ dreams.    
 

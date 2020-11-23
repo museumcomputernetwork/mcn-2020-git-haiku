@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-I must work and attend MCN    
-The sun scatters    
+An old pond    
+here at your flowering grave    
+Crying, whirling, white    
 

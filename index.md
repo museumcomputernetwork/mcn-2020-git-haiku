@@ -1,4 +1,4 @@
-Daylight is here now    
-All that remains    
-Morning-glory gazing    
+Carven gods long gone    
+Penetrating the very rock,    
+from the kiri tree.    
 

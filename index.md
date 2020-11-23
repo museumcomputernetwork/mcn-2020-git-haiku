@@ -1,4 +1,4 @@
-Imaging skills flow    
-soup, the salad, fish and all    
-how interesting    
+In the cicada's cry    
+as I take my darkening path    
+Tall grass their monument    
 

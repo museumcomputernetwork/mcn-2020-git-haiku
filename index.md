@@ -1,4 +1,4 @@
-Glorious the moon    
-dead leaves alone foregather    
-A water-jewel    
+Imaging skills flow    
+soup, the salad, fish and all    
+how interesting    
 

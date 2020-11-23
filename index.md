@@ -1,4 +1,4 @@
-An old pond    
-here at your flowering grave    
-Crying, whirling, white    
+Daylight is here now    
+All that remains    
+Morning-glory gazing    
 

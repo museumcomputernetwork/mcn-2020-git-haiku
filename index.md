@@ -1,4 +1,4 @@
-When you say something,    
-he starts to grind the rice,    
-Splash!    
+Glorious the moon    
+the scent of flowers floating    
+email confirmation demands met    
 

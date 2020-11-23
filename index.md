@@ -1,4 +1,4 @@
-First white snow of fall    
-Heron's cry    
-It’s the Doll’s Festival.    
+The sea darkening    
+Not always easy to use    
+and gazes at the moon.    
 

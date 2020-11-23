@@ -1,4 +1,4 @@
-High up in the trees    
-spare my little buzzing friends    
-It’s the Doll’s Festival.    
+White cloud of mist    
+captains swore grand conquest    
+Cold pale eyes pour tears    
 

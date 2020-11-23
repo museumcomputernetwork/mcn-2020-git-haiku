@@ -1,4 +1,4 @@
-Glorious the moon    
-the scent of flowers floating    
-email confirmation demands met    
+Silent the old town    
+falling, falling, falling now    
+How soon it must die.    
 

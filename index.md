@@ -1,4 +1,4 @@
-In the sea-surf edge    
-A frog jumps in -    
-Marks only midnight yet    
+Poverty's child -    
+I must work and attend MCN    
+-ching me new tech skills!    
 

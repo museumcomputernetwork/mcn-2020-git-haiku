@@ -1,4 +1,4 @@
-In the cicada's cry    
-as I take my darkening path    
-Tall grass their monument    
+First white snow of fall    
+Heron's cry    
+It’s the Doll’s Festival.    
 

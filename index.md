@@ -1,4 +1,4 @@
-Now in sad autumn    
-let us to the road again    
-Stabs the darkness    
+When you say something,    
+he starts to grind the rice,    
+Splash!    
 

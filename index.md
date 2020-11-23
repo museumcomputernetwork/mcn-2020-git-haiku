@@ -1,4 +1,4 @@
-hello and how are we    
-these heavy snow-flakes settling    
-And evening bell    
+In the cicada's cry    
+is quieted with creepers    
+cherry-blossoms . . .    
 

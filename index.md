@@ -1,4 +1,4 @@
-The summer grasses.    
-Twilight whippoorwill, whistle on, sweet deepener    
-Mountain-top jewels    
+This snowy morning    
+Tiffany Sprague edits books    
+Thanks for the knowledge    
 

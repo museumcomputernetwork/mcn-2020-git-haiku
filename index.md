@@ -1,4 +1,4 @@
-Spring is passing.    
-scatters in the night; Now see    
-Of warriors’ dreams.    
+Here, where a thousand    
+these heavy snow-flakes settling    
+A solitary bird    
 

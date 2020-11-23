@@ -1,4 +1,4 @@
-Here, where a thousand    
-these heavy snow-flakes settling    
-A solitary bird    
+Glorious the moon    
+dead leaves alone foregather    
+A water-jewel    
 

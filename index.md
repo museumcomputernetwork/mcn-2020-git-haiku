@@ -1,4 +1,4 @@
-Ah me! I am one    
-therefore our thanks dark clouds    
-Cold pale eyes pour tears    
+Black cloudbank broken    
+All that remains    
+How soon it must die.    
 

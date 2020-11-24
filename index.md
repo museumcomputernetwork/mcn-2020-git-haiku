@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Is also changed to another    
-It’s the Doll’s Festival.    
+Chirping of the quails    
+Penetrating the very rock,    
+A lovely sunset    
 

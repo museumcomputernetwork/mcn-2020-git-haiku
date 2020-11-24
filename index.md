@@ -1,4 +1,4 @@
-The summer grasses.    
-let us to the road again    
-Two white butterflies?    
+Ah me! I am one    
+therefore our thanks dark clouds    
+Cold pale eyes pour tears    
 

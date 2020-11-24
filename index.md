@@ -1,4 +1,4 @@
-The rains of summer join together.    
-All that remains    
-are darkened    
+None is travelling    
+chirping, keeps the autumn gay    
+Tall grass their monument    
 

@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-I am off to bed - but ah!    
-Bush-clover petals    
+The rains of summer join together.    
+All that remains    
+are darkened    
 

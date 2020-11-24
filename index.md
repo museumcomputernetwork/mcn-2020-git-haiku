@@ -1,4 +1,4 @@
-None is travelling    
-chirping, keeps the autumn gay    
-Tall grass their monument    
+MCN day 5 -    
+it needs but shiny wings and look    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-They meet, they mate    
+Lightning -    
+as I take my darkening path    
+Cold pale eyes pour tears    
 

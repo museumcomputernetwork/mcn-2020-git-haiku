@@ -1,4 +1,4 @@
-Here, where a thousand    
-I must work and attend MCN    
-Stabs the darkness    
+Learning something new    
+falling, falling, falling now    
+It’s the Doll’s Festival.    
 

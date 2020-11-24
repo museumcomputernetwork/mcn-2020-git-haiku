@@ -1,4 +1,4 @@
-Learning something new    
-falling, falling, falling now    
-It’s the Doll’s Festival.    
+A owner of the old thatched hut    
+I am off to bed - but ah!    
+Bush-clover petals    
 

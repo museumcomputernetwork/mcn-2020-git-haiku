@@ -1,4 +1,4 @@
-No oil to read by    
-The lips feel cold.    
-A perfect evening!    
+Now that eyes of hawks    
+he starts to grind the rice,    
+Two white butterflies?    
 

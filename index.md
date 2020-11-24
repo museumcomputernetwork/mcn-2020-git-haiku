@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-A little woven cape    
+Won't you come and see    
+There's no sign that can foretell    
+They meet, they mate    
 

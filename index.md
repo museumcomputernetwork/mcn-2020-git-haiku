@@ -1,4 +1,4 @@
-Chirping of the quails    
-Penetrating the very rock,    
-A lovely sunset    
+White cloud of mist    
+these brilliant-hued hibiscus    
+-ching me new tech skills!    
 

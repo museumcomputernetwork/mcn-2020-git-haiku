@@ -1,4 +1,4 @@
-White cloud of mist    
-these brilliant-hued hibiscus    
--ching me new tech skills!    
+Won't you come and see    
+The lips feel cold.    
+but inside, coffee    
 

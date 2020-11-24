@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-starving for fat fish or mice    
-A little woven cape    
+Here, where a thousand    
+I must work and attend MCN    
+Stabs the darkness    
 

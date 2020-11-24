@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-Bearded, with bent canes    
+Cloud of cherry-bloom    
+starving for fat fish or mice    
+A little woven cape    
 

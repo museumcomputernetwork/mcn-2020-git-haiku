@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
--ching me new tech skills!    
+Temple bells die out.    
+stretching over Sado Island    
+A little woven cape    
 

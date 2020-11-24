@@ -1,4 +1,4 @@
-MCN day 5 -    
-it needs but shiny wings and look    
-From the kiri tree.    
+Dry cheerful cricket    
+Is also changed to another    
+It’s the Doll’s Festival.    
 

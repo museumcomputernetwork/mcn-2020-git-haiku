@@ -1,4 +1,4 @@
-The sea darkening    
-Not always easy to use    
-and gazes at the moon.    
+The summer grasses.    
+chirping, keeps the autumn gay    
+-ching me new tech skills!    
 

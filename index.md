@@ -1,4 +1,4 @@
-Lightning -    
-as I take my darkening path    
-Cold pale eyes pour tears    
+Bright red pepper-pod    
+in dusky night    
+A water-jewel    
 

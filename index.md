@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-he starts to grind the rice,    
+The summer grasses.    
+let us to the road again    
 Two white butterflies?    
 

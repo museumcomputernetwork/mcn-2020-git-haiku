@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-in dusky night    
-A water-jewel    
+No oil to read by    
+The lips feel cold.    
+A perfect evening!    
 

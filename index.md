@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-above white    
-A water-jewel    
+Will we meet again    
+scatters in the night; Now see    
+Companion butterfly!    
 

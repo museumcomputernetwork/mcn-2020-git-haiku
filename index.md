@@ -1,4 +1,4 @@
-Too curious flower    
-fell in silent dawn, spilling    
-Mogami River.    
+MCN day 5 -    
+Tiffany Sprague edits books    
+This autumn evening.    
 

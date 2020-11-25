@@ -1,4 +1,4 @@
-An old pond    
-as I take my darkening path    
-Moon-lighted mountains!    
+In the sea-surf edge    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 

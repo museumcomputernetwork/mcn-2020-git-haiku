@@ -1,4 +1,4 @@
-In the sea-surf edge    
-therefore our thanks dark clouds    
-Of warriors’ dreams.    
+Now that eyes of hawks    
+above white    
+A water-jewel    
 

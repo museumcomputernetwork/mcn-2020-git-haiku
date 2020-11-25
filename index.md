@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
-Lilies on the rocks    
+Dry cheerful cricket    
+from cold streamlets for the sea    
+Thanks for the knowledge    
 

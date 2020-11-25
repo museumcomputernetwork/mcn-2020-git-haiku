@@ -1,4 +1,4 @@
-Seek on high bare trails    
-The fragrant blossoms remain.    
-With tears.    
+Dewdrop, let me cleanse    
+There's no sign that can foretell    
+Cold pale eyes pour tears    
 

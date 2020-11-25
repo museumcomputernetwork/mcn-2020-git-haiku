@@ -1,4 +1,4 @@
-MCN day 5 -    
-mingling with bright small shells    
-Waterfall music    
+Seek on high bare trails    
+The fragrant blossoms remain.    
+With tears.    
 

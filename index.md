@@ -1,4 +1,4 @@
-No oil to read by    
-All that remains    
-from looking at the moon.    
+Lightning -    
+thoughts come - and there is loneliness;    
+Mountain-top jewels    
 

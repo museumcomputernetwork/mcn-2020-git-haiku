@@ -1,4 +1,4 @@
-Won't you come and see    
-The lips feel cold.    
-but inside, coffee    
+No oil to read by    
+All that remains    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-How swift it is    
-how interesting    
+Dewdrop, let me cleanse    
+Heron's cry    
+Lilies on the rocks    
 

@@ -1,4 +1,4 @@
-Lightning -    
-thoughts come - and there is loneliness;    
-Mountain-top jewels    
+Seek on high bare trails    
+Here along this way but I,    
+A water-jewel    
 

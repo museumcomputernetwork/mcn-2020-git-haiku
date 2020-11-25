@@ -1,4 +1,4 @@
-Poverty's child -    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+Cold first winter rain    
+How swift it is    
+Silent clouds of stars    
 

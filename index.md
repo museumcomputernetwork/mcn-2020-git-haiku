@@ -1,4 +1,4 @@
-MCN '20    
-thoughts come - and there is loneliness;    
-Like Git and haikus!    
+White cloud of mist    
+An herbal tea, sit, listen    
+From the kiri tree.    
 

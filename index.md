@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-visit the ancestral grave    
-With tears.    
+snow falling soon now    
+the scent of flowers floating    
+This autumn evening.    
 

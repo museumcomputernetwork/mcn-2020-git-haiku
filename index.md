@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-tolling twilight bell; Temple    
-from the kiri tree.    
+Dawn-shining mountains    
+A frog jumps in -    
+Thanks for the knowledge    
 

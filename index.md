@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-is quieted with creepers    
-On the temple porch    
+Daylight is here now    
+in dusky night    
+Thanks for the knowledge    
 

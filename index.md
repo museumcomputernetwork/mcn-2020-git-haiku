@@ -1,4 +1,4 @@
-Indoors wintertime    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+Spring is passing.    
+these brilliant-hued hibiscus    
+These dark hands of life    
 

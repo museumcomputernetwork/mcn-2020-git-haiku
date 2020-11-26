@@ -1,4 +1,4 @@
-snow falling soon now    
-in your brief sweet waters    
-How soon it must die.    
+Will we meet again    
+Not always easy to use    
+cherry-blossoms . . .    
 

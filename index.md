@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-A frog jumps in -    
-Thanks for the knowledge    
+Dry cheerful cricket    
+visit the ancestral grave    
+With tears.    
 

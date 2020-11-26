@@ -1,4 +1,4 @@
-Will we meet again    
-Not always easy to use    
-cherry-blossoms . . .    
+A owner of the old thatched hut    
+in dusky night    
+to read while you wait    
 

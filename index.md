@@ -1,4 +1,4 @@
-When you say something,    
-Not always easy to use    
-Of dark loneliness    
+Dry cheerful cricket    
+Here along this way but I,    
+Basho lines the moon    
 

@@ -1,4 +1,4 @@
-See: surviving suns    
-The birds cry, and the fishes’ eyes are     
-Stabs the darkness    
+Indoors wintertime    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 

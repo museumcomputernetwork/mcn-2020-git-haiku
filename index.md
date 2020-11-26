@@ -1,4 +1,4 @@
-White cloud of mist    
-An herbal tea, sit, listen    
-From the kiri tree.    
+Now that eyes of hawks    
+twin butterflies until, twice white    
+Mogami River.    
 

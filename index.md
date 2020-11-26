@@ -1,4 +1,4 @@
-snow falling soon now    
-the scent of flowers floating    
-This autumn evening.    
+When you say something,    
+Not always easy to use    
+Of dark loneliness    
 

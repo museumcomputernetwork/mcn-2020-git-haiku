@@ -1,4 +1,4 @@
-Daylight is here now    
-in dusky night    
-Thanks for the knowledge    
+Ah me! I am one    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 

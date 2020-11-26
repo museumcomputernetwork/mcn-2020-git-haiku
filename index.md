@@ -1,4 +1,4 @@
-None is travelling    
-network is awesome for tea-    
-My moonlit pillow    
+Dewdrop, let me cleanse    
+is quieted with creepers    
+On the temple porch    
 

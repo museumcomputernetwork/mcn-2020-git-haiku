@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-twin butterflies until, twice white    
-Mogami River.    
+Under cherry-trees    
+MCN is magical    
+Basho lines the moon    
 

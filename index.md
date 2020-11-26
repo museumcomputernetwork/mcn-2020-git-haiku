@@ -1,4 +1,4 @@
-Glorious the moon    
-is quieted with creepers    
-Crying, whirling, white    
+Clouds come from time to time -    
+tolling twilight bell; Temple    
+from the kiri tree.    
 

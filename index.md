@@ -1,4 +1,4 @@
-Ah me! I am one    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+The sea darkening    
+Heron's cry    
+Bush-clover petals    
 

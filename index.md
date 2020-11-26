@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-from cold streamlets for the sea    
-Thanks for the knowledge    
+Glorious the moon    
+is quieted with creepers    
+Crying, whirling, white    
 

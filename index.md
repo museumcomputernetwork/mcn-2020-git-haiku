@@ -1,4 +1,4 @@
-The sea darkening    
-Heron's cry    
-Bush-clover petals    
+MCN '20    
+thoughts come - and there is loneliness;    
+Like Git and haikus!    
 

@@ -1,4 +1,4 @@
-Under cherry-trees    
-MCN is magical    
-Basho lines the moon    
+I am at the MCN    
+falling, falling, falling now    
+the autumn dusk is here.    
 

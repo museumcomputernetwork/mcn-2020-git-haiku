@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
+Temple bells die out.    
 in dusky night    
-to read while you wait    
+from looking at the moon.    
 

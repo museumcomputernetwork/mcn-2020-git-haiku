@@ -1,4 +1,4 @@
-See: surviving suns    
-dead leaves alone foregather    
-I need a coffee    
+In the cicada's cry    
+tolling twilight bell; Temple    
+Contemptuous of frost    
 

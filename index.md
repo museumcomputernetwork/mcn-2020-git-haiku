@@ -1,4 +1,4 @@
-The first day of the year:    
-I must work and attend MCN    
--ching me new tech skills!    
+snow falling soon now    
+soup, the salad, fish and all    
+With tears.    
 

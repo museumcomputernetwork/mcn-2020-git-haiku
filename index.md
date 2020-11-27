@@ -1,4 +1,4 @@
-High up in the trees    
-chirping, keeps the autumn gay    
-Morning-glory gazing    
+Won't you come and see    
+loneliness? Just one leaf    
+-ching me new tech skills!    
 

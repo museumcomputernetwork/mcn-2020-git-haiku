@@ -1,4 +1,4 @@
-See: surviving suns    
-like ripple on the water    
-It’s the Doll’s Festival.    
+Now in sad autumn    
+let us arrange these flowers    
+how interesting    
 

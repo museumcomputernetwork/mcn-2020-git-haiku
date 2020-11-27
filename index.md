@@ -1,4 +1,4 @@
-In the cicada's cry    
-tolling twilight bell; Temple    
-Contemptuous of frost    
+Learning something new    
+just enough to bend the leaves    
+Stabs the darkness    
 

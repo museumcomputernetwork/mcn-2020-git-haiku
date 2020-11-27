@@ -1,4 +1,4 @@
-Seas are wild tonight    
-that black crow I hate so much    
-Crying, whirling, white    
+In the sea-surf edge    
+let us arrange these flowers    
+Stabs the darkness    
 

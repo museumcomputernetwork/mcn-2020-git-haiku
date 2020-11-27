@@ -1,4 +1,4 @@
-Camellia-petal    
-these heavy snow-flakes settling    
-from looking at the moon.    
+In the cicada's cry    
+fell in silent dawn, spilling    
+This autumn evening.    
 

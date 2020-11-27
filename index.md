@@ -1,4 +1,4 @@
-An old pond    
-from cold streamlets for the sea    
-With tears.    
+Seas are wild tonight    
+that black crow I hate so much    
+Crying, whirling, white    
 

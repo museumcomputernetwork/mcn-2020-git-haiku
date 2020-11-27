@@ -1,4 +1,4 @@
-In the cicada's cry    
-fell in silent dawn, spilling    
-This autumn evening.    
+High up in the trees    
+above white    
+A little woven cape    
 

@@ -1,4 +1,4 @@
-Under cherry-trees    
-We can learn so many things,    
-But he's beautiful!    
+High up in the trees    
+chirping, keeps the autumn gay    
+Morning-glory gazing    
 

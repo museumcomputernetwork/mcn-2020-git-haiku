@@ -1,4 +1,4 @@
-snow falling soon now    
-soup, the salad, fish and all    
-With tears.    
+Bright red pepper-pod    
+mingling with bright small shells    
+It’s the Doll’s Festival.    
 

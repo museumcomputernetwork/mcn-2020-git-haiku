@@ -1,4 +1,4 @@
-Won't you come and see    
-loneliness? Just one leaf    
--ching me new tech skills!    
+Camellia-petal    
+these heavy snow-flakes settling    
+from looking at the moon.    
 

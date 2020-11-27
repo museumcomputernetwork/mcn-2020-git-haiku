@@ -1,4 +1,4 @@
-Temple bells die out.    
-in dusky night    
-from looking at the moon.    
+The first day of the year:    
+I must work and attend MCN    
+-ching me new tech skills!    
 

@@ -1,4 +1,4 @@
-In the sea-surf edge    
-let us arrange these flowers    
-Stabs the darkness    
+Now the swinging bridge    
+chirping, keeps the autumn gay    
+Seasoned with petals    
 

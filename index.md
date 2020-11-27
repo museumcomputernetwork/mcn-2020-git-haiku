@@ -1,4 +1,4 @@
-The rains of summer join together.    
-fell in silent dawn, spilling    
-Thanks for the knowledge    
+An old pond    
+from cold streamlets for the sea    
+With tears.    
 

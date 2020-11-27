@@ -1,4 +1,4 @@
-The summer grasses.    
-There's no sign that can foretell    
-A little woven cape    
+See: surviving suns    
+dead leaves alone foregather    
+I need a coffee    
 

@@ -1,4 +1,4 @@
-Too curious flower    
-perfumes her wings by floating    
-Tall grass their monument    
+Under cherry-trees    
+he starts to grind the rice,    
+And evening bell    
 

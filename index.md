@@ -1,4 +1,4 @@
-Now in sad autumn    
-A frog jumps in -    
-Among the flowers    
+An old pond    
+then cry all birds and fishes    
+Come to rest our necks    
 

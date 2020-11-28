@@ -1,4 +1,4 @@
-Poverty's child -    
-spare my little buzzing friends    
-email confirmation demands met    
+snow falling soon now    
+above white    
+are darkened    
 

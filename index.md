@@ -1,4 +1,4 @@
-Seek on high bare trails    
-The lips feel cold.    
+MCN day 5 -    
+oh voices of the wild ducks    
 Contemptuous of frost    
 

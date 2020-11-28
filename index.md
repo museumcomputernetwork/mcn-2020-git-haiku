@@ -1,4 +1,4 @@
-I am at the MCN    
-loneliness? Just one leaf    
-This autumn evening.    
+Oh, tranquility!    
+An herbal tea, sit, listen    
+Mogami River.    
 

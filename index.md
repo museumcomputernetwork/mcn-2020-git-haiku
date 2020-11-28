@@ -1,4 +1,4 @@
-Spring is passing.    
-watching us pass, met death    
-These dark hands of life    
+the zoom waiting room    
+mingling with bright small shells    
+cherry-blossoms . . .    
 

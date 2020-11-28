@@ -1,4 +1,4 @@
-Oh, tranquility!    
-from cold streamlets for the sea    
-A little woven cape    
+When you say something,    
+Is also changed to another    
+A perfect evening!    
 

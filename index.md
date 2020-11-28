@@ -1,4 +1,4 @@
-The river gathering may rains    
-Tiffany Sprague edits books    
-Ueno? Asakura?    
+Oh, tranquility!    
+from cold streamlets for the sea    
+A little woven cape    
 

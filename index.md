@@ -1,4 +1,4 @@
-When you say something,    
-Is also changed to another    
-A perfect evening!    
+Mountain-rose petals    
+in dusky night    
+Crying, whirling, white    
 

@@ -1,4 +1,4 @@
-Will we meet again    
-All that remains    
-Mogami River.    
+The river gathering may rains    
+Tiffany Sprague edits books    
+Ueno? Asakura?    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
+Seek on high bare trails    
 The lips feel cold.    
-A butterfly floats and balances    
+Contemptuous of frost    
 

@@ -1,4 +1,4 @@
-the zoom waiting room    
-mingling with bright small shells    
-cherry-blossoms . . .    
+Poverty's child -    
+spare my little buzzing friends    
+email confirmation demands met    
 

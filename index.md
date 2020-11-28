@@ -1,4 +1,4 @@
-MCN day 5 -    
-oh voices of the wild ducks    
-Contemptuous of frost    
+Mountain-rose petals    
+scatters in the night; Now see    
+They meet, they mate    
 

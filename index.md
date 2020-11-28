@@ -1,4 +1,4 @@
-Learning something new    
-just enough to bend the leaves    
-Stabs the darkness    
+Clouds come from time to time -    
+The lips feel cold.    
+A butterfly floats and balances    
 

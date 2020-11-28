@@ -1,4 +1,4 @@
-None is travelling    
-and bring to men a chance to rest    
-Seasoned with petals    
+Too curious flower    
+The fragrant blossoms remain.    
+Darting dragon-fly!    
 

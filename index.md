@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-creating git hub hides    
-Lilies on the rocks    
+Now in sad autumn    
+A frog jumps in -    
+Among the flowers    
 

@@ -1,4 +1,4 @@
-An old pond    
-then cry all birds and fishes    
-Come to rest our necks    
+I am at the MCN    
+loneliness? Just one leaf    
+This autumn evening.    
 

@@ -1,4 +1,4 @@
-Chirping of the quails    
-dead leaves alone foregather    
-Come to rest our necks    
+Clouds come from time to time -    
+creating git hub hides    
+Lilies on the rocks    
 

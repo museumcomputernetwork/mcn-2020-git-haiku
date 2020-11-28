@@ -1,4 +1,4 @@
-Too curious flower    
-The fragrant blossoms remain.    
-Darting dragon-fly!    
+Silent the old town    
+here at your flowering grave    
+from looking at the moon.    
 

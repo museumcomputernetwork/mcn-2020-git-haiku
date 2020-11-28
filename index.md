@@ -1,4 +1,4 @@
-Mountain-rose petals    
-scatters in the night; Now see    
-They meet, they mate    
+Chirping of the quails    
+dead leaves alone foregather    
+Come to rest our necks    
 

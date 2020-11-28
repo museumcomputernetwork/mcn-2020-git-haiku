@@ -1,4 +1,4 @@
-Mountain-rose petals    
-in dusky night    
-Crying, whirling, white    
+Spring is passing.    
+watching us pass, met death    
+These dark hands of life    
 

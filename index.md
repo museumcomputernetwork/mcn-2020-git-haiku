@@ -1,4 +1,4 @@
-The sea darkening    
-captains swore grand conquest    
-Goes plop! Watersplash!    
+Won't you come and see    
+Heron's cry    
+How soon it must die.    
 

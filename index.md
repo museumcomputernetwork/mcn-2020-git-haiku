@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-the scent of flowers floating    
-A cicada’s voice.    
+In the cicada's cry    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 

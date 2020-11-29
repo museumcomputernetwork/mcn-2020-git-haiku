@@ -1,4 +1,4 @@
-Love GitHub a lot    
-and bring to men a chance to rest    
-A solitary bird    
+No oil to read by    
+fell in silent dawn, spilling    
+Stabs the darkness    
 

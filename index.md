@@ -1,4 +1,4 @@
-Old dark sleepy pool    
+Spring is passing.    
 soup, the salad, fish and all    
-Silent clouds of stars    
+Stabs the darkness    
 

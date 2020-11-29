@@ -1,4 +1,4 @@
-Won't you come and see    
-All that remains    
-I need a coffee    
+Clouds come from time to time -    
+Exhausted from video    
+Bearded, with bent canes    
 

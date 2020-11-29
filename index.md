@@ -1,4 +1,4 @@
-Spring is passing.    
-soup, the salad, fish and all    
-Stabs the darkness    
+Lightning -    
+let us to the road again    
+Our hungry donkey    
 

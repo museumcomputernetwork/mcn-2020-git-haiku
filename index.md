@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-watching us pass, met death    
-Mountain-top jewels    
+Will we meet again    
+I must work and attend MCN    
+The sun scatters    
 

@@ -1,4 +1,4 @@
-Camellia-petal    
-tolling twilight bell; Temple    
-Lilies on the rocks    
+None is travelling    
+A frog jumps in -    
+Waterfall music    
 

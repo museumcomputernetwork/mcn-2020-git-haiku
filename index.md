@@ -1,4 +1,4 @@
-This snowy morning    
-poor monkey, you too could use    
-How soon it must die.    
+Now that eyes of hawks    
+soup, the salad, fish and all    
+are darkened    
 

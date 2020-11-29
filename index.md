@@ -1,4 +1,4 @@
-An old pond    
-quick unexpected frog    
-Murmuring Mogami    
+I am at the MCN    
+in dusky night    
+Seasoned with petals    
 

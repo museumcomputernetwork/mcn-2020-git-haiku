@@ -1,4 +1,4 @@
-Mountain-rose petals    
-perfumes her wings by floating    
-Of dark loneliness    
+Camellia-petal    
+tolling twilight bell; Temple    
+Lilies on the rocks    
 

@@ -1,4 +1,4 @@
-Lightning -    
-let us to the road again    
-Our hungry donkey    
+First white snow of fall    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 

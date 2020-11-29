@@ -1,4 +1,4 @@
-Too curious flower    
-How swift it is    
-This autumn evening.    
+Cloud of cherry-bloom    
+the scent of flowers floating    
+A cicada’s voice.    
 

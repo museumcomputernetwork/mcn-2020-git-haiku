@@ -1,4 +1,4 @@
-No oil to read by    
-fell in silent dawn, spilling    
-Stabs the darkness    
+Too curious flower    
+How swift it is    
+This autumn evening.    
 

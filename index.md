@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Line that won't be deleted    
-My moonlit pillow    
+Seek on high bare trails    
+let us arrange these flowers    
+Of warriors’ dreams.    
 

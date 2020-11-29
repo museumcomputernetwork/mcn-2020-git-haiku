@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-soup, the salad, fish and all    
-are darkened    
+Now the swinging bridge    
+Line that won't be deleted    
+My moonlit pillow    
 

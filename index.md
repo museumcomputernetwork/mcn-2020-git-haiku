@@ -1,4 +1,4 @@
-In the cicada's cry    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+Mountain-rose petals    
+perfumes her wings by floating    
+Of dark loneliness    
 

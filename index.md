@@ -1,4 +1,4 @@
-I am at the MCN    
-in dusky night    
-Seasoned with petals    
+The sea darkening    
+captains swore grand conquest    
+Goes plop! Watersplash!    
 

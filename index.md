@@ -1,4 +1,4 @@
-First white snow of fall    
-Here along this way but I,    
-It’s the Doll’s Festival.    
+This snowy morning    
+poor monkey, you too could use    
+How soon it must die.    
 

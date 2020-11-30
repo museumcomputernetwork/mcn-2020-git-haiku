@@ -1,4 +1,4 @@
-Must springtime fade?    
-let us to the road again    
-Goes plop! Watersplash!    
+Poverty's child -    
+Penetrating the very rock,    
+Bush-clover petals    
 

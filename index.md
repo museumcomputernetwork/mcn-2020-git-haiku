@@ -1,4 +1,4 @@
-snow falling soon now    
-Penetrating the very rock,    
-the autumn dusk is here.    
+Learning something new    
+twin butterflies until, twice white    
+Splash!    
 

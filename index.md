@@ -1,4 +1,4 @@
-If there were fragrance    
-A frog jumps in -    
-Murmuring Mogami    
+snow falling soon now    
+Penetrating the very rock,    
+the autumn dusk is here.    
 

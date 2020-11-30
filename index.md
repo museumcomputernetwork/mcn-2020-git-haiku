@@ -1,4 +1,4 @@
-White cloud of mist    
-who spends his little breakfast    
-Mogami River.    
+If there were fragrance    
+A frog jumps in -    
+Murmuring Mogami    
 

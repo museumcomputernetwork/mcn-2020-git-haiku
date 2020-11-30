@@ -1,4 +1,4 @@
-snow falling soon now    
-starving for fat fish or mice    
-Merge conflicts haunt me    
+Oh, tranquility!    
+oh voices of the wild ducks    
+Cold pale eyes pour tears    
 

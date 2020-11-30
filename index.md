@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-is quieted with creepers    
-A cicada’s voice.    
+Black cloudbank broken    
+The lips feel cold.    
+Over the orchid    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-that black crow I hate so much    
-Stabs the darkness    
+Wake! The sky is light!    
+is quieted with creepers    
+A cicada’s voice.    
 

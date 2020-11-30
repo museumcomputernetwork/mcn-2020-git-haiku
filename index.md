@@ -1,4 +1,4 @@
-Will we meet again    
-I must work and attend MCN    
-The sun scatters    
+The summer grasses.    
+Twilight whippoorwill, whistle on, sweet deepener    
+A solitary bird    
 

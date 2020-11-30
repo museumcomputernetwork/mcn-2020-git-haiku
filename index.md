@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Heron's cry    
-Come to rest our necks    
+Clouds come from time to time -    
+quick unexpected frog    
+and gazes at the moon.    
 

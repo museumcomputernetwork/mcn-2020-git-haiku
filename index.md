@@ -1,4 +1,4 @@
-Carven gods long gone    
-is quieted with creepers    
-They meet, they mate    
+exciting conference day    
+sky-reflecting violets    
+Like our tendrilled life    
 

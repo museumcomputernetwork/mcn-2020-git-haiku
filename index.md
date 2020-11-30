@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The lips feel cold.    
-Over the orchid    
+snow falling soon now    
+starving for fat fish or mice    
+Merge conflicts haunt me    
 

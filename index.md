@@ -1,4 +1,4 @@
-Such utter silence!    
-he starts to grind the rice,    
-Our hungry donkey    
+Now that eyes of hawks    
+visit the ancestral grave    
+Murmuring Mogami    
 

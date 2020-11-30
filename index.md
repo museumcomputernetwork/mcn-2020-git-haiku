@@ -1,4 +1,4 @@
-Learning something new    
-There's no sign that can foretell    
-Of faded daffodils    
+Seas are wild tonight    
+that black crow I hate so much    
+Stabs the darkness    
 

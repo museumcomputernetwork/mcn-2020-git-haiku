@@ -1,4 +1,4 @@
-The first day of the year:    
-Heron's cry    
-Marks only midnight yet    
+Too curious flower    
+starving for fat fish or mice    
+Like Git and haikus!    
 

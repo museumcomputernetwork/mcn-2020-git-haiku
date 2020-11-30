@@ -1,4 +1,4 @@
-exciting conference day    
-sky-reflecting violets    
-Like our tendrilled life    
+Oh, tranquility!    
+Heron's cry    
+Come to rest our necks    
 

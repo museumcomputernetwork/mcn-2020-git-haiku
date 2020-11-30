@@ -1,4 +1,4 @@
-Learning something new    
-twin butterflies until, twice white    
-Splash!    
+Carven gods long gone    
+is quieted with creepers    
+They meet, they mate    
 

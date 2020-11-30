@@ -1,4 +1,4 @@
-Too curious flower    
-starving for fat fish or mice    
-Like Git and haikus!    
+Lightning -    
+above white    
+I need a coffee    
 

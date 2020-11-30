@@ -1,4 +1,4 @@
-Oh, tranquility!    
-oh voices of the wild ducks    
-Cold pale eyes pour tears    
+White cloud of mist    
+who spends his little breakfast    
+Mogami River.    
 

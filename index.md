@@ -1,4 +1,4 @@
-None is travelling    
+Dry cheerful cricket    
 visit the ancestral grave    
-Morning-glory gazing    
+Over the orchid    
 

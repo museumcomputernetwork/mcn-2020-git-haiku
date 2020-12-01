@@ -1,4 +1,4 @@
-Will we meet again    
-these heavy snow-flakes settling    
-Like our tendrilled life    
+This snowy morning    
+Please don't tell my museum    
+Marks only midnight yet    
 

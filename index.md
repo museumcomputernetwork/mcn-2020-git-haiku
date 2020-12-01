@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-visit the ancestral grave    
-Over the orchid    
+Lightning -    
+chirping, keeps the autumn gay    
+from the kiri tree.    
 

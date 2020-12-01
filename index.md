@@ -1,4 +1,4 @@
-Ballet in the air    
-like ripple on the water    
-Come to rest our necks    
+Nine times arising    
+Penetrating the very rock,    
+Crying, whirling, white    
 

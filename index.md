@@ -1,4 +1,4 @@
-Must springtime fade?    
-as I take my darkening path    
-With tears.    
+Dry cheerful cricket    
+network is awesome for tea-    
+Like our tendrilled life    
 

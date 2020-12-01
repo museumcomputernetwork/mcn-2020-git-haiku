@@ -1,4 +1,4 @@
-Now the swinging bridge    
-network is awesome for tea-    
-from looking at the moon.    
+Chirping of the quails    
+How swift it is    
+Morning-glory gazing    
 

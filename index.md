@@ -1,4 +1,4 @@
-Daylight is here now    
-in dusky night    
-Stabs the darkness    
+Will we meet again    
+these heavy snow-flakes settling    
+Like our tendrilled life    
 

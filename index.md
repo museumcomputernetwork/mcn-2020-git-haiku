@@ -1,4 +1,4 @@
-Nine times arising    
+If there were fragrance    
 Penetrating the very rock,    
-Crying, whirling, white    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-the scent of flowers floating    
--ching me new tech skills!    
+When you say something,    
+and bring to men a chance to rest    
+Two white butterflies?    
 

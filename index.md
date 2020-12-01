@@ -1,4 +1,4 @@
-Black cloudbank broken    
-he starts to grind the rice,    
-The Autumn wind.    
+Must springtime fade?    
+as I take my darkening path    
+With tears.    
 

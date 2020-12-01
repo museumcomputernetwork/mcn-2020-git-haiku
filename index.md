@@ -1,4 +1,4 @@
-This snowy morning    
-Please don't tell my museum    
-Marks only midnight yet    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+how interesting    
 

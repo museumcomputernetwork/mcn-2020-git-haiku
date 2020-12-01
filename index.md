@@ -1,4 +1,4 @@
-Chirping of the quails    
-How swift it is    
-Morning-glory gazing    
+Clouds come from time to time -    
+the scent of flowers floating    
+A cicada’s voice.    
 

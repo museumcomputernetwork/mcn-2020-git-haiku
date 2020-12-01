@@ -1,4 +1,4 @@
-When you say something,    
-and bring to men a chance to rest    
-Two white butterflies?    
+Now the swinging bridge    
+network is awesome for tea-    
+from looking at the moon.    
 

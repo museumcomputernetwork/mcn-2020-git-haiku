@@ -1,4 +1,4 @@
-MCN day 5 -    
-not even a magazine    
-Can she edit this?    
+Now that eyes of hawks    
+The birds cry, and the fishes’ eyes are     
+With tears.    
 

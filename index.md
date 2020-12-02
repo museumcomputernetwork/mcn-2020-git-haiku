@@ -1,4 +1,4 @@
-Too curious flower    
-above white    
-Stabs the darkness    
+Glorious the moon    
+let us arrange these flowers    
+From the kiri tree.    
 

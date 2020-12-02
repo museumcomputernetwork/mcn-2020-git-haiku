@@ -1,4 +1,4 @@
 A owner of the old thatched hut    
-Line that won't be deleted    
-Companion butterfly!    
+starving for fat fish or mice    
+Like Git and haikus!    
 

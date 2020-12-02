@@ -1,4 +1,4 @@
-Nine times arising    
-Not always easy to use    
-A solitary bird    
+The first day of the year:    
+fell in silent dawn, spilling    
+Mogami River.    
 

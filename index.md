@@ -1,4 +1,4 @@
-Nine times arising    
-MCN is magical    
-Splash!    
+None is travelling    
+these brilliant-hued hibiscus    
+A solitary bird    
 

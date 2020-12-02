@@ -1,4 +1,4 @@
-White cloud of mist    
-these heavy snow-flakes settling    
-Splash!    
+If there were fragrance    
+A frog jumps in -    
+A perfect evening!    
 

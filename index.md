@@ -1,4 +1,4 @@
-If there were fragrance    
-A frog jumps in -    
-A perfect evening!    
+Too curious flower    
+above white    
+Stabs the darkness    
 

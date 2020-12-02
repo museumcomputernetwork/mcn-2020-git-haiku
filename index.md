@@ -1,4 +1,4 @@
 None is travelling    
-these brilliant-hued hibiscus    
-A solitary bird    
+starving for fat fish or mice    
+CHI turns seventeen    
 

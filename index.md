@@ -1,4 +1,4 @@
-Glorious the moon    
-let us arrange these flowers    
-From the kiri tree.    
+Clouds come from time to time -    
+All that remains    
+Stabs the darkness    
 

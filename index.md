@@ -1,4 +1,4 @@
-Camellia-petal    
-in dusky night    
-Of faded daffodils    
+Such utter silence!    
+starving for fat fish or mice    
+A little woven cape    
 

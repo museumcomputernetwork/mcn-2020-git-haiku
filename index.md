@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-starving for fat fish or mice    
-Like Git and haikus!    
+In the twilight rain    
+MCN is magical    
+These dark hands of life    
 

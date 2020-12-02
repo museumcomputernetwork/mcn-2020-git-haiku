@@ -1,4 +1,4 @@
-Glorious the moon    
-Penetrating the very rock,    
-A perfect evening!    
+In the cicada's cry    
+loneliness? Just one leaf    
+Moon-lighted mountains!    
 

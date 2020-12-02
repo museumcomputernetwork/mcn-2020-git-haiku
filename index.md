@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-are darkened    
+White cloud of mist    
+these heavy snow-flakes settling    
+Splash!    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-just enough to bend the leaves    
-Merge conflicts haunt me    
+Nine times arising    
+Not always easy to use    
+A solitary bird    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-All that remains    
-Stabs the darkness    
+Poverty's child -    
+just enough to bend the leaves    
+Merge conflicts haunt me    
 

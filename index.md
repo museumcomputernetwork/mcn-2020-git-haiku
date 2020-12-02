@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Is also changed to another    
-They meet, they mate    
+Will we meet again    
+Heron's cry    
+The Autumn wind.    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The birds cry, and the fishes’ eyes are     
-With tears.    
+A owner of the old thatched hut    
+Line that won't be deleted    
+Companion butterfly!    
 

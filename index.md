@@ -1,4 +1,4 @@
-In the twilight rain    
-MCN is magical    
-These dark hands of life    
+Cloud of cherry-bloom    
+Is also changed to another    
+They meet, they mate    
 

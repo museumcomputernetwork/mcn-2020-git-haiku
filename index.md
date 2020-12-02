@@ -1,4 +1,4 @@
-None is travelling    
-starving for fat fish or mice    
-CHI turns seventeen    
+In the cicada's cry    
+How swift it is    
+are darkened    
 

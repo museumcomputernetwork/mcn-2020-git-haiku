@@ -1,4 +1,4 @@
-hello and how are we    
-A frog jumps in -    
-This autumn evening.    
+Such utter silence!    
+The fragrant blossoms remain.    
+Lilies on the rocks    
 

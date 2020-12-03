@@ -1,4 +1,4 @@
-This snowy morning    
-Is also changed to another    
-from the kiri tree.    
+This is the new line    
+as I take my darkening path    
+but inside, coffee    
 

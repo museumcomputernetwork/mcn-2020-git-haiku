@@ -1,4 +1,4 @@
-Such utter silence!    
-There's no sign that can foretell    
-Splash!    
+Now the swinging bridge    
+loneliness? Just one leaf    
+Companion butterfly!    
 

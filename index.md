@@ -1,4 +1,4 @@
-Camellia-petal    
-oh voices of the wild ducks    
-Over the orchid    
+Now the swinging bridge    
+visit the ancestral grave    
+CHI turns seventeen    
 

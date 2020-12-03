@@ -1,4 +1,4 @@
-Won't you come and see    
-scatters in the night; Now see    
-Enjoying the house    
+Too curious flower    
+Line that won't be deleted    
+A cicada’s voice.    
 

@@ -1,4 +1,4 @@
-Daylight is here now    
-Line that won't be deleted    
-How soon it must die.    
+exciting conference day    
+poor monkey, you too could use    
+Since there is no rice    
 

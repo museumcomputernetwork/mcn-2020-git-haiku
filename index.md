@@ -1,4 +1,4 @@
-Too curious flower    
-Line that won't be deleted    
-A cicada’s voice.    
+Dawn-shining mountains    
+falling, falling, falling now    
+Morning-glory gazing    
 

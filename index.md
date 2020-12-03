@@ -1,4 +1,4 @@
-Cold first winter rain    
-in your brief sweet waters    
-to read while you wait    
+White cloud of mist    
+Please don't tell my museum    
+A perfect evening!    
 

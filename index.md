@@ -1,4 +1,4 @@
-Daylight is here now    
-therefore our thanks dark clouds    
-Of dark loneliness    
+None is travelling    
+thoughts come - and there is loneliness;    
+Thanks for the knowledge    
 

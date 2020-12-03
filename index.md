@@ -1,4 +1,4 @@
-The first day of the year:    
-fell in silent dawn, spilling    
-Mogami River.    
+Poverty's child -    
+even the crickets' singing    
+Contemptuous of frost    
 

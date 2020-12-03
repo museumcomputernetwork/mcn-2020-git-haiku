@@ -1,4 +1,4 @@
-Won't you come and see    
-then cry all birds and fishes    
-Moon-lighted mountains!    
+Such utter silence!    
+There's no sign that can foretell    
+Splash!    
 

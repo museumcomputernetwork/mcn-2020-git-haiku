@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-falling, falling, falling now    
-Morning-glory gazing    
+Camellia-petal    
+oh voices of the wild ducks    
+Over the orchid    
 

@@ -1,4 +1,4 @@
-White cloud of mist    
-Please don't tell my museum    
-A perfect evening!    
+Seek on high bare trails    
+creating git hub hides    
+They meet, they mate    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-tolling twilight bell; Temple    
-Mountain-top jewels    
+Daylight is here now    
+therefore our thanks dark clouds    
+Of dark loneliness    
 

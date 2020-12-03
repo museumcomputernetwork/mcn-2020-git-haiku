@@ -1,4 +1,4 @@
-exciting conference day    
-poor monkey, you too could use    
-Since there is no rice    
+This snowy morning    
+Is also changed to another    
+from the kiri tree.    
 

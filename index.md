@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-Thanks for the knowledge    
+Cold first winter rain    
+in your brief sweet waters    
+to read while you wait    
 

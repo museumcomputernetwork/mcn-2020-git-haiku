@@ -1,4 +1,4 @@
-White cloud of mist    
-Penetrating the very rock,    
-A perfect evening!    
+Spring is passing.    
+Not always easy to use    
+The Autumn wind.    
 

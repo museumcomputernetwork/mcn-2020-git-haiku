@@ -1,4 +1,4 @@
-Seas are wild tonight    
-How swift it is    
-from looking at the moon.    
+In the cicada's cry    
+Please don't tell my museum    
+A solitary bird    
 

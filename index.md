@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
+Must springtime fade?    
+these brilliant-hued hibiscus    
 Mogami River.    
 

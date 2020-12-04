@@ -1,4 +1,4 @@
-Spring is passing.    
-A small weed    
-Bearded, with bent canes    
+An old pond    
+thoughts come - and there is loneliness;    
+how interesting    
 

@@ -1,4 +1,4 @@
-In the cicada's cry    
-Please don't tell my museum    
-A solitary bird    
+Lady butterfly    
+adventure awaits outside    
+Lilies on the rocks    
 

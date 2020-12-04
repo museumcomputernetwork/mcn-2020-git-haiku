@@ -1,4 +1,4 @@
-Spring is passing.    
-Not always easy to use    
-The Autumn wind.    
+Will we meet again    
+An herbal tea, sit, listen    
+They meet, they mate    
 

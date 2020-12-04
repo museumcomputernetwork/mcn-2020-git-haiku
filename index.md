@@ -1,4 +1,4 @@
-In the sea-surf edge    
-who spends his little breakfast    
-Can she edit this?    
+Cloud of cherry-bloom    
+even the crickets' singing    
+How soon it must die.    
 

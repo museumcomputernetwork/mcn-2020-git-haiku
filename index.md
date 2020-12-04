@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-even the crickets' singing    
-How soon it must die.    
+Cold first winter rain    
+not even a magazine    
+This autumn evening.    
 

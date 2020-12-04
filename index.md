@@ -1,4 +1,4 @@
-Will we meet again    
-An herbal tea, sit, listen    
-They meet, they mate    
+Spring is passing.    
+A small weed    
+Bearded, with bent canes    
 

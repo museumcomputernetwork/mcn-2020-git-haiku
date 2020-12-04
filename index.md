@@ -1,4 +1,4 @@
-An old pond    
-thoughts come - and there is loneliness;    
-how interesting    
+Seas are wild tonight    
+How swift it is    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-starving for fat fish or mice    
-Bush-clover petals    
+hello and how are we    
+here at your flowering grave    
+the autumn dusk is here.    
 

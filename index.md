@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-sky-reflecting violets    
-Morning-glory gazing    
+Imaging skills flow    
+and bring to men a chance to rest    
+Contemptuous of frost    
 

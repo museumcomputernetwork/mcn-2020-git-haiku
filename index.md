@@ -1,4 +1,4 @@
-Cold first winter rain    
-not even a magazine    
-This autumn evening.    
+The summer grasses.    
+starving for fat fish or mice    
+Bush-clover petals    
 

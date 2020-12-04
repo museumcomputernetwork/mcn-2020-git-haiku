@@ -1,4 +1,4 @@
-Ah me! I am one    
-quick unexpected frog    
-A water-jewel    
+The rains of summer join together.    
+i understand github now    
+Merge conflicts haunt me    
 

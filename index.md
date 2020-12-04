@@ -1,4 +1,4 @@
-hello and how are we    
-here at your flowering grave    
-the autumn dusk is here.    
+Lightning -    
+it needs but shiny wings and look    
+Of dark loneliness    
 

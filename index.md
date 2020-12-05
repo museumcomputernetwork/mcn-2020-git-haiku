@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-is quieted with creepers    
-Mogami River.    
+In the cicada's cry    
+then cry all birds and fishes    
+Stabs the darkness    
 

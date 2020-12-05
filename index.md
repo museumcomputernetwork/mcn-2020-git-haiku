@@ -1,4 +1,4 @@
-MCN day 5 -    
-like ripple on the water    
-Come to rest our necks    
+Now that eyes of hawks    
+not even a magazine    
+And so it must be    
 

@@ -1,4 +1,4 @@
-An old pond    
-The fragrant blossoms remain.    
-And so it must be    
+Now that eyes of hawks    
+All that remains    
+Splash!    
 

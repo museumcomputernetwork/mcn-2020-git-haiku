@@ -1,4 +1,4 @@
-Temple bells die out.    
-An herbal tea, sit, listen    
-CHI turns seventeen    
+In the cicada's cry    
+Is also changed to another    
+Like Git and haikus!    
 

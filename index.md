@@ -1,4 +1,4 @@
-Seas are wild tonight    
-I am off to bed - but ah!    
-but inside, coffee    
+Chirping of the quails    
+oh voices of the wild ducks    
+CHI turns seventeen    
 

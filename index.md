@@ -1,4 +1,4 @@
-In the cicada's cry    
-then cry all birds and fishes    
-Stabs the darkness    
+Poverty's child -    
+There's no sign that can foretell    
+Mountain-top jewels    
 

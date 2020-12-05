@@ -1,4 +1,4 @@
-Poverty's child -    
-There's no sign that can foretell    
-Mountain-top jewels    
+Seek on high bare trails    
+I must work and attend MCN    
+My moonlit pillow    
 

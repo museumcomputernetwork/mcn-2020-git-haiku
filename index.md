@@ -1,4 +1,4 @@
-The rains of summer join together.    
-from cold streamlets for the sea    
-Companion butterfly!    
+Spring is passing.    
+that black crow I hate so much    
+to read while you wait    
 

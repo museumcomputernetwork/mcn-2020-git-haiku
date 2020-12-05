@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-not even a magazine    
-And so it must be    
+Dewdrop, let me cleanse    
+is quieted with creepers    
+Mogami River.    
 

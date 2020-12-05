@@ -1,4 +1,4 @@
-Seek on high bare trails    
-I must work and attend MCN    
-My moonlit pillow    
+An old pond    
+The fragrant blossoms remain.    
+And so it must be    
 

@@ -1,4 +1,4 @@
-MCN '20    
-The lips feel cold.    
-to read while you wait    
+Poverty's child -    
+captains swore grand conquest    
+Of dark loneliness    
 

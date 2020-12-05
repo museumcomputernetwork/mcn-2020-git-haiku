@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Splash!    
+Nine times arising    
+in dusky night    
+Thanks for the knowledge    
 

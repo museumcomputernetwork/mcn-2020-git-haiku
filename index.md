@@ -1,4 +1,4 @@
-Won't you come and see    
-stretching over Sado Island    
-How soon it must die.    
+Temple bells die out.    
+An herbal tea, sit, listen    
+CHI turns seventeen    
 

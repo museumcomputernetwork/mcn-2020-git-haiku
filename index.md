@@ -1,4 +1,4 @@
-The first day of the year:    
-tolling twilight bell; Temple    
-Mogami River.    
+Seas are wild tonight    
+I am off to bed - but ah!    
+but inside, coffee    
 

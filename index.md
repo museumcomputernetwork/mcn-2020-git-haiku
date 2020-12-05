@@ -1,4 +1,4 @@
-Poverty's child -    
-captains swore grand conquest    
-Of dark loneliness    
+Oh, tranquility!    
+scatters in the night; Now see    
+It’s the Doll’s Festival.    
 

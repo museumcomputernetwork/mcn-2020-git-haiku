@@ -1,4 +1,4 @@
-Oh, tranquility!    
-scatters in the night; Now see    
-It’s the Doll’s Festival.    
+The first day of the year:    
+tolling twilight bell; Temple    
+Mogami River.    
 

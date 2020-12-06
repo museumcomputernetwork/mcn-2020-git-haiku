@@ -1,4 +1,4 @@
-An old pond    
-Please don't tell my museum    
-Stabs the darkness    
+The rains of summer join together.    
+just enough to bend the leaves    
+With tears.    
 

@@ -1,4 +1,4 @@
-Camellia-petal    
-spare my little buzzing friends    
-Lilies on the rocks    
+In the cicada's cry    
+soup, the salad, fish and all    
+A water-jewel    
 

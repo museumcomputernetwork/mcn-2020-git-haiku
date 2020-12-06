@@ -1,4 +1,4 @@
-In the cicada's cry    
-soup, the salad, fish and all    
-A water-jewel    
+The summer grasses.    
+starving for fat fish or mice    
+CHI turns seventeen    
 

@@ -1,4 +1,4 @@
-The first day of the year:    
-stretching over Sado Island    
-From the kiri tree.    
+The rains of summer join together.    
+just enough to bend the leaves    
+Waterfall music    
 

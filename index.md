@@ -1,4 +1,4 @@
-This is a haiku    
-Line that won't be deleted    
-Two white butterflies?    
+Ah me! I am one    
+is quieted with creepers    
+Can she edit this?    
 

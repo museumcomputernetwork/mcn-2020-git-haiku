@@ -1,4 +1,4 @@
-Oh, tranquility!    
-in dusky night    
-How soon it must die.    
+This is a haiku    
+Line that won't be deleted    
+Two white butterflies?    
 

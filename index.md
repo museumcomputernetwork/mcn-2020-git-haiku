@@ -1,4 +1,4 @@
-Under cherry-trees    
-The fragrant blossoms remain.    
-Two white butterflies?    
+Dawn-shining mountains    
+Tiffany Sprague edits books    
+to read while you wait    
 

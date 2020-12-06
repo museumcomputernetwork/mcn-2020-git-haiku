@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-A cicada’s voice.    
+museum computer    
+How swift it is    
+They meet, they mate    
 

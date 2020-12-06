@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Tiffany Sprague edits books    
-to read while you wait    
+Oh, tranquility!    
+I am off to bed - but ah!    
+and gazes at the moon.    
 

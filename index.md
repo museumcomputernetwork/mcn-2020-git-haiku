@@ -1,4 +1,4 @@
-The rains of summer join together.    
-just enough to bend the leaves    
-With tears.    
+A owner of the old thatched hut    
+in dusky night    
+Since there is no rice    
 

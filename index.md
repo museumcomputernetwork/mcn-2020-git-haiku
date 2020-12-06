@@ -1,4 +1,4 @@
-Swallow in the dusk    
-There's no sign that can foretell    
-The autumn dusk is here.    
+Daylight is here now    
+scatters in the night; Now see    
+are darkened    
 

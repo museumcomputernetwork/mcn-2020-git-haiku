@@ -1,4 +1,4 @@
-Now in sad autumn    
-like ripple on the water    
-Mogami River.    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+A cicada’s voice.    
 

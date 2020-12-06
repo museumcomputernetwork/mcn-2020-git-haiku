@@ -1,4 +1,4 @@
-the zoom waiting room    
-in your brief sweet waters    
-Mountain-top jewels    
+The first day of the year:    
+stretching over Sado Island    
+From the kiri tree.    
 

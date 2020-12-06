@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-thoughts come - and there is loneliness;    
-They meet, they mate    
+Swallow in the dusk    
+There's no sign that can foretell    
+The autumn dusk is here.    
 

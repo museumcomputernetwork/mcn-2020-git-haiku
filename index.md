@@ -1,4 +1,4 @@
-Nine times arising    
-in dusky night    
-Thanks for the knowledge    
+An old pond    
+Please don't tell my museum    
+Stabs the darkness    
 

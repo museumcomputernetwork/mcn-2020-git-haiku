@@ -1,4 +1,4 @@
-Spring is passing.    
-poor monkey, you too could use    
-Moon-lighted mountains!    
+Now in sad autumn    
+like ripple on the water    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Daylight is here now    
-scatters in the night; Now see    
-are darkened    
+the zoom waiting room    
+in your brief sweet waters    
+Mountain-top jewels    
 

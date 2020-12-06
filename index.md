@@ -1,4 +1,4 @@
-The rains of summer join together.    
-just enough to bend the leaves    
-Waterfall music    
+Under cherry-trees    
+The fragrant blossoms remain.    
+Two white butterflies?    
 

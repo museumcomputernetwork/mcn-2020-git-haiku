@@ -1,4 +1,4 @@
-Won't you come and see    
-thoughts come - and there is loneliness;    
-And evening bell    
+MCN day 5 -    
+tolling twilight bell; Temple    
+Of warriors’ dreams.    
 

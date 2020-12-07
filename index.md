@@ -1,4 +1,4 @@
-In the cicada's cry    
-A small weed    
-Darting dragon-fly!    
+exciting conference day    
+these heavy snow-flakes settling    
+CHI turns seventeen    
 

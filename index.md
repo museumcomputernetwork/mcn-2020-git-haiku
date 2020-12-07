@@ -1,4 +1,4 @@
-Here, where a thousand    
-it needs but shiny wings and look    
-from the kiri tree.    
+Bright red pepper-pod    
+to see the moon, whose solemn pace    
+Of faded daffodils    
 

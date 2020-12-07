@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-poor monkey, you too could use    
-On the temple porch    
+Won't you come and see    
+thoughts come - and there is loneliness;    
+And evening bell    
 

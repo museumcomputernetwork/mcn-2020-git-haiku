@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-to see the moon, whose solemn pace    
-Of faded daffodils    
+The first day of the year:    
+it needs but shiny wings and look    
+but inside, coffee    
 

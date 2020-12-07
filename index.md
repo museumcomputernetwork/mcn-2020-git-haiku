@@ -1,4 +1,4 @@
-When you say something,    
-thoughts come - and there is loneliness;    
-Over the orchid    
+Lightning -    
+We can learn so many things,    
+But he's beautiful!    
 

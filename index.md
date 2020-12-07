@@ -1,4 +1,4 @@
-MCN day 5 -    
-tolling twilight bell; Temple    
-Of warriors’ dreams.    
+Must springtime fade?    
+network is awesome for tea-    
+Merge conflicts haunt me    
 

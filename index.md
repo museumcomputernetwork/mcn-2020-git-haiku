@@ -1,4 +1,4 @@
-When you say something,    
-All that remains    
-Our hungry donkey    
+Will we meet again    
+tolling twilight bell; Temple    
+The autumn dusk is here.    
 

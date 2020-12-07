@@ -1,4 +1,4 @@
-Will we meet again    
-tolling twilight bell; Temple    
-The autumn dusk is here.    
+When you say something,    
+thoughts come - and there is loneliness;    
+Over the orchid    
 

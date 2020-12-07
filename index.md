@@ -1,4 +1,4 @@
-Must springtime fade?    
-network is awesome for tea-    
-Merge conflicts haunt me    
+An old pond    
+not even a magazine    
+Cold pale eyes pour tears    
 

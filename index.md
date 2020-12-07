@@ -1,4 +1,4 @@
-An old pond    
-not even a magazine    
-Cold pale eyes pour tears    
+Now in sad autumn    
+even the crickets' singing    
+Come to rest our necks    
 

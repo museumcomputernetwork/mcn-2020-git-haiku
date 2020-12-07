@@ -1,4 +1,4 @@
-The summer grasses.    
-starving for fat fish or mice    
-CHI turns seventeen    
+Now that eyes of hawks    
+poor monkey, you too could use    
+On the temple porch    
 

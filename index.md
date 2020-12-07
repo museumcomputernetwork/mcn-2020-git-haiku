@@ -1,4 +1,4 @@
-The first day of the year:    
-it needs but shiny wings and look    
-but inside, coffee    
+MCN '20    
+in dusky night    
+how interesting    
 

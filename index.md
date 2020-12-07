@@ -1,4 +1,4 @@
-Such utter silence!    
-oh voices of the wild ducks    
-But he's beautiful!    
+Glorious the moon    
+All that remains    
+On the temple porch    
 

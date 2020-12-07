@@ -1,4 +1,4 @@
-hello and how are we    
-is quieted with creepers    
-With tears.    
+Here, where a thousand    
+it needs but shiny wings and look    
+from the kiri tree.    
 

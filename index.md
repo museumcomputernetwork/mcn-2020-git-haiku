@@ -1,4 +1,4 @@
-Glorious the moon    
-All that remains    
-On the temple porch    
+In the cicada's cry    
+A small weed    
+Darting dragon-fly!    
 

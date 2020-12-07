@@ -1,4 +1,4 @@
-Now in sad autumn    
-even the crickets' singing    
-Come to rest our necks    
+Such utter silence!    
+oh voices of the wild ducks    
+But he's beautiful!    
 

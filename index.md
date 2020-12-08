@@ -1,4 +1,4 @@
-Love GitHub a lot    
-scatters in the night; Now see    
-Of dark loneliness    
+In the cicada's cry    
+and bring to men a chance to rest    
+Of faded daffodils    
 

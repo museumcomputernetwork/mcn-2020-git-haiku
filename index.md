@@ -1,4 +1,4 @@
-Imaging skills flow    
-The lips feel cold.    
-from looking at the moon.    
+snow falling soon now    
+like ripple on the water    
+This autumn evening.    
 

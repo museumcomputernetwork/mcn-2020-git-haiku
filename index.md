@@ -1,4 +1,4 @@
-Temple bells die out.    
-above white    
-Over the orchid    
+Must springtime fade?    
+here at your flowering grave    
+A little woven cape    
 

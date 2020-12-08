@@ -1,4 +1,4 @@
-In the cicada's cry    
-and bring to men a chance to rest    
-Of faded daffodils    
+snow falling soon now    
+watching us pass, met death    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Silent the old town    
-The fragrant blossoms remain.    
-Moon-lighted mountains!    
+Cloud of cherry-bloom    
+How swift it is    
+With tears.    
 

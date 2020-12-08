@@ -1,4 +1,4 @@
-Silent the old town    
-Please don't tell my museum    
-Mogami River.    
+Such utter silence!    
+in dusky night    
+Can she edit this?    
 

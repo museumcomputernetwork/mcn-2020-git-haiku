@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-How swift it is    
-With tears.    
+An old pond    
+network is awesome for tea-    
+A water-jewel    
 

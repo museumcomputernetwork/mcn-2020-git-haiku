@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-network is awesome for tea-    
-Crying, whirling, white    
+Poverty's child -    
+The fragrant blossoms remain.    
+are darkened . . .    
 

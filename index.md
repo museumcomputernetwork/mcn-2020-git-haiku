@@ -1,4 +1,4 @@
-Lady butterfly    
-stretching over Sado Island    
-from looking at the moon.    
+Now in sad autumn    
+sky-reflecting violets    
+are darkened    
 

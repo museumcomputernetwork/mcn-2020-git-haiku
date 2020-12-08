@@ -1,4 +1,4 @@
-Glorious the moon    
-creating git hub hides    
-Of warriors’ dreams.    
+The river gathering may rains    
+even the crickets' singing    
+From the kiri tree.    
 

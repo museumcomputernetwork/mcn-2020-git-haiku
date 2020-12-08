@@ -1,4 +1,4 @@
-Poverty's child -    
+Silent the old town    
 The fragrant blossoms remain.    
-are darkened . . .    
+Moon-lighted mountains!    
 

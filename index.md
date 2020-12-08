@@ -1,4 +1,4 @@
-Such utter silence!    
-in dusky night    
-Can she edit this?    
+Chirping of the quails    
+captains swore grand conquest    
+Moon-lighted mountains!    
 

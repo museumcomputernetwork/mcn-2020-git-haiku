@@ -1,4 +1,4 @@
-exciting conference day    
-soup, the salad, fish and all    
-the autumn dusk is here.    
+Temple bells die out.    
+that black crow I hate so much    
+cherry-blossoms . . .    
 

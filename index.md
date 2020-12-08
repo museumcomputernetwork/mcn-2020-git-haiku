@@ -1,4 +1,4 @@
 Temple bells die out.    
-that black crow I hate so much    
-cherry-blossoms . . .    
+above white    
+Over the orchid    
 

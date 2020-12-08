@@ -1,4 +1,4 @@
-snow falling soon now    
-like ripple on the water    
-This autumn evening.    
+Dewdrop, let me cleanse    
+The birds cry, and the fishes’ eyes are     
+Mountain-top jewels    
 

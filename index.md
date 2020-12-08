@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
-to read while you wait    
+Silent the old town    
+Please don't tell my museum    
+Mogami River.    
 

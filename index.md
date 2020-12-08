@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The birds cry, and the fishes’ eyes are     
-Mountain-top jewels    
+Lady butterfly    
+stretching over Sado Island    
+from looking at the moon.    
 

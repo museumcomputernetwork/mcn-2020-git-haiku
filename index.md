@@ -1,4 +1,4 @@
-Chirping of the quails    
-captains swore grand conquest    
-Moon-lighted mountains!    
+Glorious the moon    
+creating git hub hides    
+Of warriors’ dreams.    
 

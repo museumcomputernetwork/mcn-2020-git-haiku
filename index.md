@@ -1,4 +1,4 @@
-An old pond    
-network is awesome for tea-    
-A water-jewel    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+to read while you wait    
 

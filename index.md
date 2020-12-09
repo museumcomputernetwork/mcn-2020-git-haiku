@@ -1,4 +1,4 @@
-Such utter silence!    
-tolling twilight bell; Temple    
-A solitary bird    
+The summer grasses.    
+in dusky night    
+Come to rest our necks    
 

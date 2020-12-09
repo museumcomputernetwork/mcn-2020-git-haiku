@@ -1,4 +1,4 @@
-exciting conference day    
-adventure awaits outside    
-A cicada’s voice.    
+The rains of summer join together.    
+Exhausted from video    
+and gazes at the moon.    
 

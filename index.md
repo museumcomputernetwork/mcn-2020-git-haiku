@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-Come to rest our necks    
+Clouds come from time to time -    
+fell in silent dawn, spilling    
+Mogami River.    
 

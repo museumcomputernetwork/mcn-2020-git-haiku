@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Exhausted from video    
-and gazes at the moon.    
+Poverty's child -    
+let us to the road again    
+Seasoned with petals    
 

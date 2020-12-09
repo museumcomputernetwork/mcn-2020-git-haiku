@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-fell in silent dawn, spilling    
-Mogami River.    
+Chirping of the quails    
+The fragrant blossoms remain.    
+Stabs the darkness    
 

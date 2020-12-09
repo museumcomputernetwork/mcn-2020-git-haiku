@@ -1,4 +1,4 @@
-Temple bells die out.    
-Heron's cry    
-Morning-glory gazing    
+Here, where a thousand    
+A frog jumps in -    
+Thanks for the knowledge    
 

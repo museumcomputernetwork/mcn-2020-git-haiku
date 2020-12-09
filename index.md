@@ -1,4 +1,4 @@
-None is travelling    
-loneliness? Just one leaf    
-And so it must be    
+Now the swinging bridge    
+creating git hub hides    
+Stabs the darkness    
 

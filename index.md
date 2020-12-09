@@ -1,4 +1,4 @@
-In the sea-surf edge    
-watching us pass, met death    
-Of warriors’ dreams.    
+Dewdrop, let me cleanse    
+oh voices of the wild ducks    
+Enjoying the house    
 

@@ -1,4 +1,4 @@
-In the cicada's cry    
-from cold streamlets for the sea    
-Waterfall music    
+exciting conference day    
+All that remains    
+The sun scatters    
 

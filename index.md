@@ -1,4 +1,4 @@
-Must springtime fade?    
-above white    
-This autumn evening.    
+None is travelling    
+loneliness? Just one leaf    
+And so it must be    
 

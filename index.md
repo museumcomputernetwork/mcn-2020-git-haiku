@@ -1,4 +1,4 @@
-Learning something new    
-like ripple on the water    
-A butterfly floats and balances    
+Lady butterfly    
+that black crow I hate so much    
+The Autumn wind.    
 

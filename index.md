@@ -1,4 +1,4 @@
-The river gathering may rains    
-even the crickets' singing    
-From the kiri tree.    
+exciting conference day    
+adventure awaits outside    
+A cicada’s voice.    
 

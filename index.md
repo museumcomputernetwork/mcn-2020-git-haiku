@@ -1,4 +1,4 @@
-When you say something,    
-The birds cry, and the fishes’ eyes are     
-A butterfly floats and balances    
+In the sea-surf edge    
+watching us pass, met death    
+Of warriors’ dreams.    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-let us to the road again    
-Seasoned with petals    
+This is a haiku    
+visit the ancestral grave    
+-ching me new tech skills!    
 

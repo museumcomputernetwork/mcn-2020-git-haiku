@@ -1,4 +1,4 @@
-Here, where a thousand    
-A frog jumps in -    
-Thanks for the knowledge    
+None is travelling    
+above white    
+It’s the Doll’s Festival.    
 

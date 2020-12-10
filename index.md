@@ -1,4 +1,4 @@
-This is a haiku    
-Not always easy to use    
-to read while you wait    
+Seas are wild tonight    
+Twilight whippoorwill, whistle on, sweet deepener    
+My moonlit pillow    
 

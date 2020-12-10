@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Twilight whippoorwill, whistle on, sweet deepener    
-My moonlit pillow    
+Now the swinging bridge    
+captains swore grand conquest    
+Marks only midnight yet    
 

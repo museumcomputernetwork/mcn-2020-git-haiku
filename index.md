@@ -1,4 +1,4 @@
-Seas are wild tonight    
-poor monkey, you too could use    
-Crying, whirling, white    
+First white snow of fall    
+these heavy snow-flakes settling    
+are darkened    
 

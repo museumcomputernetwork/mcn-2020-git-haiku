@@ -1,4 +1,4 @@
-Seas are wild tonight    
-tolling twilight bell; Temple    
-It’s the Doll’s Festival.    
+Spring is passing.    
+poor monkey, you too could use    
+Or backyard love?    
 

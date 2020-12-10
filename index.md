@@ -1,4 +1,4 @@
-Lady butterfly    
-that black crow I hate so much    
-The Autumn wind.    
+Now in sad autumn    
+There's no sign that can foretell    
+A cicada’s voice.    
 

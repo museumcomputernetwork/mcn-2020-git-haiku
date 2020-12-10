@@ -1,4 +1,4 @@
-Now in sad autumn    
-There's no sign that can foretell    
-A cicada’s voice.    
+Under cherry-trees    
+that black crow I hate so much    
+Enjoying the house    
 

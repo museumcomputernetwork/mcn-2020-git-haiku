@@ -1,4 +1,4 @@
-Now the swinging bridge    
-captains swore grand conquest    
-Marks only midnight yet    
+Seas are wild tonight    
+poor monkey, you too could use    
+Crying, whirling, white    
 

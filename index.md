@@ -1,4 +1,4 @@
-Under cherry-trees    
-that black crow I hate so much    
+In the cicada's cry    
+stretching over Sado Island    
 Enjoying the house    
 

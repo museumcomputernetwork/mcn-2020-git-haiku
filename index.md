@@ -1,4 +1,4 @@
-First white snow of fall    
-these heavy snow-flakes settling    
-are darkened    
+No oil to read by    
+Penetrating the very rock,    
+the autumn dusk is here.    
 

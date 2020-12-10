@@ -1,4 +1,4 @@
-MCN day 5 -    
-from cold streamlets for the sea    
-About this ignite    
+Won't you come and see    
+A small weed    
+They meet, they mate    
 

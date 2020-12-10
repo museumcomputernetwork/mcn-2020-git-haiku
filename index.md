@@ -1,4 +1,4 @@
-An old pond    
-fell in silent dawn, spilling    
-A cicada’s voice.    
+Clouds come from time to time -    
+captains swore grand conquest    
+Waterfall music    
 

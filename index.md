@@ -1,4 +1,4 @@
-Lightning -    
-even the crickets' singing    
-Of warriors’ dreams.    
+Camellia-petal    
+Is also changed to another    
+Mountain-top jewels    
 

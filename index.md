@@ -1,4 +1,4 @@
-No oil to read by    
-Penetrating the very rock,    
-the autumn dusk is here.    
+Such utter silence!    
+thoughts come - and there is loneliness;    
+Come to rest our necks    
 

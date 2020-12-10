@@ -1,4 +1,4 @@
-Learning something new    
-April's air stirs in willow-leaves    
-Goes plop! Watersplash!    
+White cloud of mist    
+Please don't tell my museum    
+how interesting    
 

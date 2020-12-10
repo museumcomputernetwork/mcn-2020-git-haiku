@@ -1,4 +1,4 @@
-Spring is passing.    
-poor monkey, you too could use    
-Or backyard love?    
+This is a haiku    
+A frog jumps in -    
+Like Git and haikus!    
 

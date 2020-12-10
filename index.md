@@ -1,4 +1,4 @@
-Such utter silence!    
-thoughts come - and there is loneliness;    
-Come to rest our necks    
+An old pond    
+fell in silent dawn, spilling    
+A cicada’s voice.    
 

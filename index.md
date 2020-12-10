@@ -1,4 +1,4 @@
-This is the new line    
-thoughts come - and there is loneliness;    
-A little woven cape    
+This is a haiku    
+Not always easy to use    
+to read while you wait    
 

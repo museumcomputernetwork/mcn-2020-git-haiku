@@ -1,4 +1,4 @@
-This is a haiku    
-A frog jumps in -    
-Like Git and haikus!    
+Learning something new    
+April's air stirs in willow-leaves    
+Goes plop! Watersplash!    
 

@@ -1,4 +1,4 @@
-Learning something new    
-to see the moon, whose solemn pace    
-Muffled by hot rocks    
+Lightning -    
+How swift it is    
+Basho lines the moon    
 

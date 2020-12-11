@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-visit the ancestral grave    
-Enjoying the house    
+Oh, tranquility!    
+he starts to grind the rice,    
+Mogami River.    
 

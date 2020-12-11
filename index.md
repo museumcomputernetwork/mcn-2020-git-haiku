@@ -1,4 +1,4 @@
-White cloud of mist    
-in your brief sweet waters    
-My moonlit pillow    
+See: surviving suns    
+tolling twilight bell; Temple    
+A cicada’s voice.    
 

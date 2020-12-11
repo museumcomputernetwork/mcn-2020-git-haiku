@@ -1,4 +1,4 @@
-Silent the old town    
-as I take my darkening path    
-Basho lines the moon    
+The first day of the year:    
+like ripple on the water    
+-ching me new tech skills!    
 

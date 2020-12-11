@@ -1,4 +1,4 @@
-None is travelling    
-fell in silent dawn, spilling    
-Splash!    
+Learning something new    
+to see the moon, whose solemn pace    
+Muffled by hot rocks    
 

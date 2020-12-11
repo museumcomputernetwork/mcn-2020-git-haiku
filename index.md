@@ -1,4 +1,4 @@
-Learning something new    
-therefore our thanks dark clouds    
-Ueno? Asakura?    
+Dry cheerful cricket    
+visit the ancestral grave    
+Enjoying the house    
 

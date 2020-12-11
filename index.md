@@ -1,4 +1,4 @@
 Oh, tranquility!    
 Tiffany Sprague edits books    
-Two white butterflies?    
+Of faded daffodils    
 

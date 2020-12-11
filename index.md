@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-A frog jumps in -    
-are darkened    
+Love GitHub a lot    
+i understand github now    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-Mogami River.    
+An old pond    
+loneliness? Just one leaf    
+A perfect evening!    
 

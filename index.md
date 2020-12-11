@@ -1,4 +1,4 @@
-This is the new line    
-in your brief sweet waters    
-It’s the Doll’s Festival.    
+Learning something new    
+the scent of flowers floating    
+Over the orchid    
 

@@ -1,4 +1,4 @@
-See: surviving suns    
-tolling twilight bell; Temple    
-A cicada’s voice.    
+Must springtime fade?    
+There's no sign that can foretell    
+Murmuring Mogami    
 

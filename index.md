@@ -1,4 +1,4 @@
-If there were fragrance    
-as I take my darkening path    
-Splash!    
+In the cicada's cry    
+he starts to grind the rice,    
+Cherry-blossoms    
 

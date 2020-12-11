@@ -1,4 +1,4 @@
-White cloud of mist    
-Please don't tell my museum    
-how interesting    
+If there were fragrance    
+as I take my darkening path    
+Splash!    
 

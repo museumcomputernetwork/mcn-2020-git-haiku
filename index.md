@@ -1,4 +1,4 @@
-Now the swinging bridge    
-perfumes her wings by floating    
-Lilies on the rocks    
+Lady butterfly    
+even the crickets' singing    
+Enjoying the house    
 

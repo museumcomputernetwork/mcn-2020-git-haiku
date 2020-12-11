@@ -1,4 +1,4 @@
-Learning something new    
-the scent of flowers floating    
-Over the orchid    
+Dewdrop, let me cleanse    
+A frog jumps in -    
+are darkened    
 

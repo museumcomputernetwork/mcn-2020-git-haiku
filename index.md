@@ -1,4 +1,4 @@
-Lady butterfly    
-even the crickets' singing    
-Enjoying the house    
+Learning something new    
+therefore our thanks dark clouds    
+Ueno? Asakura?    
 

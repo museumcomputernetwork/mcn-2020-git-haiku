@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Cherry-blossoms    
+None is travelling    
+fell in silent dawn, spilling    
+Splash!    
 

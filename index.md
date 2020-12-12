@@ -1,4 +1,4 @@
-When you say something,    
-and bring to men a chance to rest    
-Moon-lighted mountains!    
+Poverty's child -    
+spare my little buzzing friends    
+Contemptuous of frost    
 

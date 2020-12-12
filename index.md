@@ -1,4 +1,4 @@
-This is a haiku    
-MCN is magical    
-With tears.    
+First white snow of fall    
+Here along this way but I,    
+Waterfall music    
 

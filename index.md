@@ -1,4 +1,4 @@
-First white snow of fall    
-Here along this way but I,    
-Waterfall music    
+White cloud of mist    
+Twilight whippoorwill, whistle on, sweet deepener    
+Come to rest our necks    
 

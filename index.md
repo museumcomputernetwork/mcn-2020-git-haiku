@@ -1,4 +1,4 @@
-The sea darkening    
-twin butterflies until, twice white    
-Silent clouds of stars    
+This is a haiku    
+MCN is magical    
+With tears.    
 

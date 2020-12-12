@@ -1,4 +1,4 @@
-Here, where a thousand    
-All that remains    
-Ueno? Asakura?    
+Now in sad autumn    
+Line that won't be deleted    
+CHI turns seventeen    
 

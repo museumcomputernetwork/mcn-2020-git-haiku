@@ -1,4 +1,4 @@
-Poverty's child -    
-I must work and attend MCN    
-Thanks for the knowledge    
+Chirping of the quails    
+not even a magazine    
+Can she edit this?    
 

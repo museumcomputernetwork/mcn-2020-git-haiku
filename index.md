@@ -1,4 +1,4 @@
-exciting conference day    
-Twilight whippoorwill, whistle on, sweet deepener    
-Goes plop! Watersplash!    
+First white snow of fall    
+above white    
+It’s the Doll’s Festival.    
 

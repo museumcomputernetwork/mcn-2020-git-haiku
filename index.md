@@ -1,4 +1,4 @@
-Chirping of the quails    
-not even a magazine    
-Can she edit this?    
+museum computer    
+even the crickets' singing    
+Of warriors’ dreams.    
 

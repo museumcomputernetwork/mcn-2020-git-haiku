@@ -1,4 +1,4 @@
-Ballet in the air    
-Here along this way but I,    
-and gazes at the moon.    
+Indoors wintertime    
+dead leaves alone foregather    
+-ching me new tech skills!    
 

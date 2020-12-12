@@ -1,4 +1,4 @@
-Poverty's child -    
-Is also changed to another    
-Seasoned with petals    
+White cloud of mist    
+The fragrant blossoms remain.    
+Lilies on the rocks    
 

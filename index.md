@@ -1,4 +1,4 @@
-Poverty's child -    
-spare my little buzzing friends    
-Contemptuous of frost    
+If there were fragrance    
+the scent of flowers floating    
+Splash!    
 

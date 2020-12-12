@@ -1,4 +1,4 @@
-the zoom waiting room    
-who spends his little breakfast    
-Contemptuous of frost    
+Poverty's child -    
+I must work and attend MCN    
+Thanks for the knowledge    
 

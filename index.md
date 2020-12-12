@@ -1,4 +1,4 @@
 White cloud of mist    
-The fragrant blossoms remain.    
-Lilies on the rocks    
+then cry all birds and fishes    
+email confirmation demands met    
 

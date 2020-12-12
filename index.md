@@ -1,4 +1,4 @@
-museum computer    
-even the crickets' singing    
-Of warriors’ dreams.    
+In the cicada's cry    
+in dusky night    
+but inside, coffee    
 

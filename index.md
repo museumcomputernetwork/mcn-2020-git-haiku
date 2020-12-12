@@ -1,4 +1,4 @@
-Must springtime fade?    
-The fragrant blossoms remain.    
-The sun scatters    
+The sea darkening    
+twin butterflies until, twice white    
+Silent clouds of stars    
 

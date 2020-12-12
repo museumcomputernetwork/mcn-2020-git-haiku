@@ -1,4 +1,4 @@
-Indoors wintertime    
-dead leaves alone foregather    
--ching me new tech skills!    
+exciting conference day    
+Twilight whippoorwill, whistle on, sweet deepener    
+Goes plop! Watersplash!    
 

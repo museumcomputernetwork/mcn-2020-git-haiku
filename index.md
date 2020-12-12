@@ -1,4 +1,4 @@
-In the cicada's cry    
-in dusky night    
-but inside, coffee    
+When you say something,    
+and bring to men a chance to rest    
+Moon-lighted mountains!    
 

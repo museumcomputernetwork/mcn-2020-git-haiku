@@ -1,4 +1,4 @@
-This is a haiku    
-even the crickets' singing    
-from looking at the moon.    
+A owner of the old thatched hut    
+April's air stirs in willow-leaves    
+With tears.    
 

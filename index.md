@@ -1,4 +1,4 @@
-Daylight is here now    
-fell in silent dawn, spilling    
-The sun scatters    
+Old dark sleepy pool    
+and bring to men a chance to rest    
+A perfect evening!    
 

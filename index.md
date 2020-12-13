@@ -1,4 +1,4 @@
-exciting conference day    
-perfumes her wings by floating    
-Murmuring Mogami    
+No oil to read by    
+I must work and attend MCN    
+With tears.    
 

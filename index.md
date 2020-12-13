@@ -1,4 +1,4 @@
-snow falling soon now    
-starving for fat fish or mice    
-Splash!    
+In the sea-surf edge    
+in dusky night    
+Basho lines the moon    
 

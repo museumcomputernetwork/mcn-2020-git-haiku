@@ -1,4 +1,4 @@
-If there were fragrance    
-the scent of flowers floating    
-Splash!    
+This is a haiku    
+even the crickets' singing    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-Ah me! I am one    
-sky-reflecting violets    
-Since there is no rice    
+Carven gods long gone    
+here at your flowering grave    
+A little woven cape    
 

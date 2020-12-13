@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The birds cry, and the fishes’ eyes are     
-A butterfly floats and balances    
+Temple bells die out.    
+in dusky night    
+cherry-blossoms . . .    
 

@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-thoughts come - and there is loneliness;    
-A perfect evening!    
+Ah me! I am one    
+Is also changed to another    
+from looking at the moon.    
 

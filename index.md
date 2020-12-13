@@ -1,4 +1,4 @@
-No oil to read by    
-I must work and attend MCN    
-With tears.    
+Poverty's child -    
+to see the moon, whose solemn pace    
+They meet, they mate    
 

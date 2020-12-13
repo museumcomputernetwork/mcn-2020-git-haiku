@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-creating git hub hides    
-Mogami River.    
+Temple bells die out.    
+watching us pass, met death    
+are darkened    
 

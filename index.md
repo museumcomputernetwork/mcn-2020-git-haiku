@@ -1,4 +1,4 @@
-In the sea-surf edge    
-in dusky night    
-Basho lines the moon    
+Bright red pepper-pod    
+The birds cry, and the fishes’ eyes are     
+A butterfly floats and balances    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Twilight whippoorwill, whistle on, sweet deepener    
-CHI turns seventeen    
+exciting conference day    
+perfumes her wings by floating    
+Murmuring Mogami    
 

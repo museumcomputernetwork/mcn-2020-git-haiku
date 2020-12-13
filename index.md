@@ -1,4 +1,4 @@
-Ah me! I am one    
-Is also changed to another    
-from looking at the moon.    
+Clouds come from time to time -    
+Twilight whippoorwill, whistle on, sweet deepener    
+CHI turns seventeen    
 

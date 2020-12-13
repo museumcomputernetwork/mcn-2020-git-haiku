@@ -1,4 +1,4 @@
-Poverty's child -    
-to see the moon, whose solemn pace    
-They meet, they mate    
+Bright red pepper-pod    
+creating git hub hides    
+Mogami River.    
 

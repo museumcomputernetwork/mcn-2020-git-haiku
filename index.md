@@ -1,4 +1,4 @@
-Oh, tranquility!    
-fell in silent dawn, spilling    
-It’s the Doll’s Festival.    
+Won't you come and see    
+Twilight whippoorwill, whistle on, sweet deepener    
+These dark hands of life    
 

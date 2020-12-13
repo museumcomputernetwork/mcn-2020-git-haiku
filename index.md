@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-April's air stirs in willow-leaves    
-With tears.    
+Now in sad autumn    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 

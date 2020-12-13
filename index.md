@@ -1,4 +1,4 @@
-Temple bells die out.    
-watching us pass, met death    
-are darkened    
+Spring is passing.    
+loneliness? Just one leaf    
+A lovely sunset    
 

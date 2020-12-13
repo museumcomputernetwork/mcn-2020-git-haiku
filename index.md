@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-A lovely sunset    
+The first day of the year:    
+The birds cry, and the fishes’ eyes are     
+and gazes at the moon.    
 

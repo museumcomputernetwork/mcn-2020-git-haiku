@@ -1,4 +1,4 @@
-The first day of the year:    
-The birds cry, and the fishes’ eyes are     
-and gazes at the moon.    
+Daylight is here now    
+fell in silent dawn, spilling    
+The sun scatters    
 

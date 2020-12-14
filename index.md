@@ -1,4 +1,4 @@
-Mountain-rose petals    
-A frog jumps in -    
-Like our tendrilled life    
+Now the swinging bridge    
+We can learn so many things,    
+Darting dragon-fly!    
 

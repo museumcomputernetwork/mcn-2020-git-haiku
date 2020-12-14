@@ -1,4 +1,4 @@
-High up in the trees    
-twin butterflies until, twice white    
-With tears.    
+snow falling soon now    
+captains swore grand conquest    
+They meet, they mate    
 

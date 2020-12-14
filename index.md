@@ -1,4 +1,4 @@
-First white snow of fall    
-loneliness? Just one leaf    
-How soon it must die.    
+Mountain-rose petals    
+A frog jumps in -    
+Like our tendrilled life    
 

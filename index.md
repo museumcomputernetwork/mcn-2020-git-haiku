@@ -1,4 +1,4 @@
-Temple bells die out.    
-let us to the road again    
-from the kiri tree.    
+Daylight is here now    
+to see the moon, whose solemn pace    
+email confirmation demands met    
 

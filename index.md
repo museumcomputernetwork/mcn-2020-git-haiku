@@ -1,4 +1,4 @@
-snow falling soon now    
-captains swore grand conquest    
-They meet, they mate    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+from the kiri tree.    
 

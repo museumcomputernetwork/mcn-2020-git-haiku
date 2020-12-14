@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
-These dark hands of life    
+Seas are wild tonight    
+here at your flowering grave    
+from the kiri tree.    
 

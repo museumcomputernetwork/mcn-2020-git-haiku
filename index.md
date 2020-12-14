@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-tolling twilight bell; Temple    
-Of warriors’ dreams.    
+First white snow of fall    
+loneliness? Just one leaf    
+How soon it must die.    
 

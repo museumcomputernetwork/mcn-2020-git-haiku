@@ -1,4 +1,4 @@
-Camellia-petal    
-There's no sign that can foretell    
-to read while you wait    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+These dark hands of life    
 

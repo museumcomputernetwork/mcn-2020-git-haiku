@@ -1,4 +1,4 @@
-Carven gods long gone    
-here at your flowering grave    
-A little woven cape    
+Ah me! I am one    
+visit the ancestral grave    
+how interesting    
 

@@ -1,4 +1,4 @@
-Love GitHub a lot    
-Is also changed to another    
-the autumn dusk is here.    
+See: surviving suns    
+to see the moon, whose solemn pace    
+Of warriors’ dreams.    
 

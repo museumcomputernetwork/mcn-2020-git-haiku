@@ -1,4 +1,4 @@
-Silent the old town    
-adventure awaits outside    
-and gazes at the moon.    
+High up in the trees    
+twin butterflies until, twice white    
+With tears.    
 

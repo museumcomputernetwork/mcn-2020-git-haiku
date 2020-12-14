@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-from the kiri tree.    
+Now in sad autumn    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 

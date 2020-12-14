@@ -1,4 +1,4 @@
-None is travelling    
-April's air stirs in willow-leaves    
-how interesting    
+White cloud of mist    
+Twilight whippoorwill, whistle on, sweet deepener    
+Moon-lighted mountains!    
 

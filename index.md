@@ -1,4 +1,4 @@
-Seas are wild tonight    
-here at your flowering grave    
-from the kiri tree.    
+Now that eyes of hawks    
+MCN is magical    
+A cicada’s voice.    
 

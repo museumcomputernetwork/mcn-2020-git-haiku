@@ -1,4 +1,4 @@
-Daylight is here now    
-to see the moon, whose solemn pace    
-email confirmation demands met    
+Cold first winter rain    
+We can learn so many things,    
+Enjoying the house    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The fragrant blossoms remain.    
-Morning-glory gazing    
+None is travelling    
+April's air stirs in willow-leaves    
+how interesting    
 

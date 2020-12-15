@@ -1,4 +1,4 @@
-When you say something,    
+MCN day 5 -    
 the scent of flowers floating    
-Like Git and haikus!    
+A water-jewel    
 

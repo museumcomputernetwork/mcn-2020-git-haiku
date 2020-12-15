@@ -1,4 +1,4 @@
-High up in the trees    
-poor monkey, you too could use    
-Marks only midnight yet    
+the zoom waiting room    
+even the crickets' singing    
+On the temple porch    
 

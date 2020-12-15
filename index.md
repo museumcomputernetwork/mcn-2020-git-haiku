@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Penetrating the very rock,    
-Moon-lighted mountains!    
+The summer grasses.    
+An herbal tea, sit, listen    
+Thanks for the knowledge    
 

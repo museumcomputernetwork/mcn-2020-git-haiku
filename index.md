@@ -1,4 +1,4 @@
-In the sea-surf edge    
-he starts to grind the rice,    
-Murmuring Mogami    
+The rains of summer join together.    
+thoughts come - and there is loneliness;    
+Splash!    
 

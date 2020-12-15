@@ -1,4 +1,4 @@
-The rains of summer join together.    
-thoughts come - and there is loneliness;    
+Old dark sleepy pool    
+Penetrating the very rock,    
 Splash!    
 

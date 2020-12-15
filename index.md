@@ -1,4 +1,4 @@
-Daylight is here now    
-watching us pass, met death    
-I need a coffee    
+Old dark sleepy pool    
+thoughts come - and there is loneliness;    
+Come to rest our necks    
 

@@ -1,4 +1,4 @@
-Black cloudbank broken    
-from cold streamlets for the sea    
-from looking at the moon.    
+Daylight is here now    
+watching us pass, met death    
+I need a coffee    
 

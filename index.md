@@ -1,4 +1,4 @@
-Under cherry-trees    
-watching us pass, met death    
-from looking at the moon.    
+No oil to read by    
+just enough to bend the leaves    
+Bearded, with bent canes    
 

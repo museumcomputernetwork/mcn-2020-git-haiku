@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Here along this way but I,    
-Muffled by hot rocks    
+In the sea-surf edge    
+he starts to grind the rice,    
+Murmuring Mogami    
 

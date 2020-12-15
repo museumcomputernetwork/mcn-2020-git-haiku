@@ -1,4 +1,4 @@
-The summer grasses.    
-An herbal tea, sit, listen    
-Thanks for the knowledge    
+When you say something,    
+the scent of flowers floating    
+Like Git and haikus!    
 

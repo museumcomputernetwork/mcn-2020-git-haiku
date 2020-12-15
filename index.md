@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-thoughts come - and there is loneliness;    
-Come to rest our necks    
+Dry cheerful cricket    
+Here along this way but I,    
+Muffled by hot rocks    
 

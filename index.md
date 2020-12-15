@@ -1,4 +1,4 @@
-the zoom waiting room    
-even the crickets' singing    
-On the temple porch    
+The sea darkening    
+above white    
+A cicada’s voice.    
 

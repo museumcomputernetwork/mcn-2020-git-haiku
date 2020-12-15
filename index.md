@@ -1,4 +1,4 @@
-The sea darkening    
-just enough to bend the leaves    
-Splash!    
+Under cherry-trees    
+watching us pass, met death    
+from looking at the moon.    
 

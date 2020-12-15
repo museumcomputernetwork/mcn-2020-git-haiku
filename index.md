@@ -1,4 +1,4 @@
-The sea darkening    
-above white    
-A cicada’s voice.    
+Black cloudbank broken    
+from cold streamlets for the sea    
+from looking at the moon.    
 

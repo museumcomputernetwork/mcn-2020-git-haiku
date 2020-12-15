@@ -1,4 +1,4 @@
-This is a haiku    
-How swift it is    
-A cicada’s voice.    
+High up in the trees    
+poor monkey, you too could use    
+Marks only midnight yet    
 

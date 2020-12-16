@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-All that remains    
-Enjoying the house    
+Chirping of the quails    
+A frog jumps in -    
+Come to rest our necks    
 

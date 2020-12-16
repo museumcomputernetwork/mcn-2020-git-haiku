@@ -1,4 +1,4 @@
-Indoors wintertime    
-Penetrating the very rock,    
-The autumn dusk is here.    
+This snowy morning    
+Is also changed to another    
+Cold pale eyes pour tears    
 

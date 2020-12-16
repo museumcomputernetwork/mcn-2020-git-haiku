@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-Come to rest our necks    
+White cloud of mist    
+All that remains    
+email confirmation demands met    
 

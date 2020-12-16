@@ -1,4 +1,4 @@
-Spring is passing.    
-then cry all birds and fishes    
-About this ignite    
+When you say something,    
+An herbal tea, sit, listen    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-None is travelling    
-even the crickets' singing    
-how interesting    
+Now in sad autumn    
+Twilight whippoorwill, whistle on, sweet deepener    
+Splash!    
 

@@ -1,4 +1,4 @@
-Daylight is here now    
-in dusky night    
-This autumn evening.    
+Temple bells die out.    
+Twilight whippoorwill, whistle on, sweet deepener    
+Marks only midnight yet    
 

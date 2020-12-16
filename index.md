@@ -1,4 +1,4 @@
-Indoors wintertime    
-watching us pass, met death    
-The autumn dusk is here.    
+Daylight is here now    
+in dusky night    
+This autumn evening.    
 

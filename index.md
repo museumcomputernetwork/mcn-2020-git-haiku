@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
-Can she edit this?    
+Oh, tranquility!    
+mingling with bright small shells    
+Darting dragon-fly!    
 

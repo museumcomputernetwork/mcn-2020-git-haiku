@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-We can learn so many things,    
-Over the orchid    
+Carven gods long gone    
+There's no sign that can foretell    
+A little woven cape    
 

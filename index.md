@@ -1,4 +1,4 @@
-Temple bells die out.    
-Twilight whippoorwill, whistle on, sweet deepener    
-Marks only midnight yet    
+Lady butterfly    
+network is awesome for tea-    
+from the kiri tree.    
 

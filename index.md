@@ -1,4 +1,4 @@
-Learning something new    
-Heron's cry    
-A cicada’s voice.    
+Indoors wintertime    
+watching us pass, met death    
+The autumn dusk is here.    
 

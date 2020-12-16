@@ -1,4 +1,4 @@
-Seas are wild tonight    
-watching us pass, met death    
-Cold pale eyes pour tears    
+Camellia-petal    
+these heavy snow-flakes settling    
+These dark hands of life    
 

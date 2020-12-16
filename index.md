@@ -1,4 +1,4 @@
-Must springtime fade?    
-April's air stirs in willow-leaves    
-Murmuring Mogami    
+The sea darkening    
+adventure awaits outside    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-Now in sad autumn    
-Twilight whippoorwill, whistle on, sweet deepener    
-Splash!    
+Learning something new    
+Heron's cry    
+A cicada’s voice.    
 

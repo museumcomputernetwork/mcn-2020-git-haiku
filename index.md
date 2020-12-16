@@ -1,4 +1,4 @@
-An old pond    
-Line that won't be deleted    
-to read while you wait    
+Must springtime fade?    
+April's air stirs in willow-leaves    
+Murmuring Mogami    
 

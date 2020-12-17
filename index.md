@@ -1,4 +1,4 @@
-museum computer    
-then cry all birds and fishes    
-How soon it must die.    
+Lightning -    
+and bring to men a chance to rest    
+But he's beautiful!    
 

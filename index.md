@@ -1,4 +1,4 @@
-Black cloudbank broken    
-just enough to bend the leaves    
-Basho lines the moon    
+White cloud of mist    
+MCN is magical    
+Companion butterfly!    
 

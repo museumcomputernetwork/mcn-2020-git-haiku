@@ -1,4 +1,4 @@
-Imaging skills flow    
-The fragrant blossoms remain.    
-Basho lines the moon    
+Clouds come from time to time -    
+is quieted with creepers    
+cherry-blossoms . . .    
 

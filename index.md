@@ -1,4 +1,4 @@
-MCN '20    
-A frog jumps in -    
-These dark hands of life    
+Indoors wintertime    
+loneliness? Just one leaf    
+Cold pale eyes pour tears    
 

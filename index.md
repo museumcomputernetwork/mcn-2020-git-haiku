@@ -1,4 +1,4 @@
-Glorious the moon    
-stretching over Sado Island    
-My moonlit pillow    
+MCN '20    
+A frog jumps in -    
+These dark hands of life    
 

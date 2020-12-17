@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-soup, the salad, fish and all    
-Over the orchid    
+An old pond    
+as I take my darkening path    
+Like Git and haikus!    
 

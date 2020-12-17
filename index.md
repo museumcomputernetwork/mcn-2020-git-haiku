@@ -1,4 +1,4 @@
-When you say something,    
-An herbal tea, sit, listen    
-How soon it must die.    
+If there were fragrance    
+I am off to bed - but ah!    
+A perfect evening!    
 

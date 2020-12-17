@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-But he's beautiful!    
+Why so scrawny, cat?    
+soup, the salad, fish and all    
+Over the orchid    
 

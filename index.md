@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-these brilliant-hued hibiscus    
-Seasoned with petals    
+Black cloudbank broken    
+just enough to bend the leaves    
+Basho lines the moon    
 

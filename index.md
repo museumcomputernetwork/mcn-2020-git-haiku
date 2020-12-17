@@ -1,4 +1,4 @@
-White cloud of mist    
-MCN is magical    
-Companion butterfly!    
+Glorious the moon    
+stretching over Sado Island    
+My moonlit pillow    
 

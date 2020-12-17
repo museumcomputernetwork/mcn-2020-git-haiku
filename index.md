@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-From the kiri tree.    
+snow falling soon now    
+scatters in the night; Now see    
+Since there is no rice    
 

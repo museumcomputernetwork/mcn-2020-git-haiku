@@ -1,4 +1,4 @@
-An old pond    
-as I take my darkening path    
-Like Git and haikus!    
+Must springtime fade?    
+adventure awaits outside    
+But he's beautiful!    
 

@@ -1,4 +1,4 @@
-museum computer    
-Heron's cry    
-A perfect evening!    
+Imaging skills flow    
+Penetrating the very rock,    
+On the temple porch    
 

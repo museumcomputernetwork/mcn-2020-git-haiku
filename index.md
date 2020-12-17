@@ -1,4 +1,4 @@
-Imaging skills flow    
-Penetrating the very rock,    
-On the temple porch    
+A owner of the old thatched hut    
+these brilliant-hued hibiscus    
+Seasoned with petals    
 

@@ -1,4 +1,4 @@
-Indoors wintertime    
+Imaging skills flow    
 The fragrant blossoms remain.    
-A butterfly floats and balances    
+Basho lines the moon    
 

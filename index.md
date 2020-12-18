@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-is quieted with creepers    
-cherry-blossoms . . .    
+This snowy morning    
+An herbal tea, sit, listen    
+Over the orchid    
 

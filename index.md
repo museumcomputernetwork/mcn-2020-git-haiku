@@ -1,4 +1,4 @@
-In the twilight rain    
-The fragrant blossoms remain.    
-Among the flowers    
+This is the new line    
+the scent of flowers floating    
+How soon it must die.    
 

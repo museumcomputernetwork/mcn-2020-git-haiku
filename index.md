@@ -1,4 +1,4 @@
-Spring is passing.    
-above white    
-A little woven cape    
+Clouds come from time to time -    
+in dusky night    
+Stabs the darkness    
 

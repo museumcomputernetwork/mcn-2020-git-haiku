@@ -1,4 +1,4 @@
-Lightning -    
-The birds cry, and the fishes’ eyes are     
-Of warriors’ dreams.    
+Won't you come and see    
+let us to the road again    
+Of faded daffodils    
 

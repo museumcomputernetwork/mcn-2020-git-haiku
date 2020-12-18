@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-in dusky night    
-Stabs the darkness    
+Chirping of the quails    
+network is awesome for tea-    
+Murmuring Mogami    
 

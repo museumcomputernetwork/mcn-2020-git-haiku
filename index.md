@@ -1,4 +1,4 @@
-Chirping of the quails    
-Penetrating the very rock,    
-A perfect evening!    
+Lightning -    
+The birds cry, and the fishes’ eyes are     
+Of warriors’ dreams.    
 

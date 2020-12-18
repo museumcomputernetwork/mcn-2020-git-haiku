@@ -1,4 +1,4 @@
-Now in sad autumn    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+In the twilight rain    
+The fragrant blossoms remain.    
+Among the flowers    
 

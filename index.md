@@ -1,4 +1,4 @@
-the zoom waiting room    
-adventure awaits outside    
-Morning-glory gazing    
+Cold first winter rain    
+to see the moon, whose solemn pace    
+Thanks for the knowledge    
 

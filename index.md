@@ -1,4 +1,4 @@
-This is the new line    
-chirping, keeps the autumn gay    
-Mogami River.    
+Spring is passing.    
+above white    
+A little woven cape    
 

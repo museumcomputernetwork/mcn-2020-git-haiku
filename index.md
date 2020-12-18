@@ -1,4 +1,4 @@
-Must springtime fade?    
-MCN is magical    
-Cherry-blossoms    
+the zoom waiting room    
+adventure awaits outside    
+Morning-glory gazing    
 

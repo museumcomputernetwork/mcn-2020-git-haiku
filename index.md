@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
+Chirping of the quails    
 Penetrating the very rock,    
-Mogami River.    
+A perfect evening!    
 

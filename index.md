@@ -1,4 +1,4 @@
-See: surviving suns    
-let us to the road again    
-are darkened . . .    
+This is the new line    
+chirping, keeps the autumn gay    
+Mogami River.    
 

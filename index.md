@@ -1,4 +1,4 @@
-This is the new line    
-the scent of flowers floating    
-How soon it must die.    
+Temple bells die out.    
+like ripple on the water    
+Crying, whirling, white    
 

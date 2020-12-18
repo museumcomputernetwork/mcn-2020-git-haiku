@@ -1,4 +1,4 @@
-Seek on high bare trails    
-quick unexpected frog    
-Cold pale eyes pour tears    
+Cloud of cherry-bloom    
+Penetrating the very rock,    
+Mogami River.    
 

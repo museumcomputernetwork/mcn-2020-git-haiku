@@ -1,4 +1,4 @@
-MCN '20    
-twin butterflies until, twice white    
-Our hungry donkey    
+Ah me! I am one    
+thoughts come - and there is loneliness;    
+to read while you wait    
 

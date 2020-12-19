@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Here along this way but I,    
-Splash!    
+An old pond    
+soup, the salad, fish and all    
+Come to rest our necks    
 

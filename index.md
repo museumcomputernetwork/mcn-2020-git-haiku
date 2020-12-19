@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Line that won't be deleted    
-cherry-blossoms . . .    
+Seek on high bare trails    
+to see the moon, whose solemn pace    
+Bearded, with bent canes    
 

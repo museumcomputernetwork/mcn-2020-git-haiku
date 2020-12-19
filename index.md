@@ -1,4 +1,4 @@
-MCN '20    
-Here along this way but I,    
-These dark hands of life    
+Now that eyes of hawks    
+I must work and attend MCN    
+Thanks for the knowledge    
 

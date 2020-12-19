@@ -1,4 +1,4 @@
-Indoors wintertime    
-dead leaves alone foregather    
-The Autumn wind.    
+Oh, tranquility!    
+loneliness? Just one leaf    
+Two white butterflies?    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-loneliness? Just one leaf    
-Two white butterflies?    
+In the cicada's cry    
+quick unexpected frog    
+Morning-glory gazing    
 

@@ -1,4 +1,4 @@
-Such utter silence!    
-then cry all birds and fishes    
-With tears.    
+Indoors wintertime    
+dead leaves alone foregather    
+The Autumn wind.    
 

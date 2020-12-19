@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-as I take my darkening path    
-Since there is no rice    
+Such utter silence!    
+then cry all birds and fishes    
+With tears.    
 

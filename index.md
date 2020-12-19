@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-It’s the Doll’s Festival.    
+MCN day 5 -    
+the scent of flowers floating    
+Basho lines the moon    
 

@@ -1,4 +1,4 @@
-None is travelling    
-let us arrange these flowers    
-I need a coffee    
+Lightning -    
+in dusky night    
+Lilies on the rocks    
 

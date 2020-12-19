@@ -1,4 +1,4 @@
-Lady butterfly    
-stretching over Sado Island    
-Among the flowers    
+Why so scrawny, cat?    
+Here along this way but I,    
+Splash!    
 

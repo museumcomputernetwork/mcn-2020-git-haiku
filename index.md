@@ -1,4 +1,4 @@
-Nine times arising    
-and bring to men a chance to rest    
-Enjoying the house    
+Seas are wild tonight    
+Exhausted from video    
+But he's beautiful!    
 

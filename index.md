@@ -1,4 +1,4 @@
-An old pond    
-soup, the salad, fish and all    
-Come to rest our necks    
+High up in the trees    
+to see the moon, whose solemn pace    
+and gazes at the moon.    
 

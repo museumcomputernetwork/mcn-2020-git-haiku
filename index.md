@@ -1,4 +1,4 @@
 Now that eyes of hawks    
-I must work and attend MCN    
-Thanks for the knowledge    
+even the crickets' singing    
+It’s the Doll’s Festival.    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Exhausted from video    
-But he's beautiful!    
+Lady butterfly    
+stretching over Sado Island    
+Among the flowers    
 

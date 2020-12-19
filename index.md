@@ -1,4 +1,4 @@
-Ah me! I am one    
-thoughts come - and there is loneliness;    
-to read while you wait    
+Nine times arising    
+and bring to men a chance to rest    
+Enjoying the house    
 

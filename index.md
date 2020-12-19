@@ -1,4 +1,4 @@
-In the cicada's cry    
-quick unexpected frog    
-Morning-glory gazing    
+None is travelling    
+let us arrange these flowers    
+I need a coffee    
 

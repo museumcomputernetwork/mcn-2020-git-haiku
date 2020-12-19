@@ -1,4 +1,4 @@
-Daylight is here now    
-visit the ancestral grave    
-Cold pale eyes pour tears    
+Old dark sleepy pool    
+adventure awaits outside    
+are darkened . . .    
 

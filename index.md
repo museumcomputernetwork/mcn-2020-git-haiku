@@ -1,4 +1,4 @@
-High up in the trees    
-to see the moon, whose solemn pace    
-and gazes at the moon.    
+Black cloudbank broken    
+Line that won't be deleted    
+cherry-blossoms . . .    
 

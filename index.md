@@ -1,4 +1,4 @@
-In the sea-surf edge    
-these brilliant-hued hibiscus    
-Since there is no rice    
+Spring is passing.    
+MCN is magical    
+My moonlit pillow    
 

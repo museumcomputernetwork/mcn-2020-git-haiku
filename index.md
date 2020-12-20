@@ -1,4 +1,4 @@
-When you say something,    
-All that remains    
-Thanks for the knowledge    
+Dawn-shining mountains    
+captains swore grand conquest    
+The sun scatters    
 

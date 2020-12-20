@@ -1,4 +1,4 @@
-The first day of the year:    
-like ripple on the water    
-They meet, they mate    
+First white snow of fall    
+perfumes her wings by floating    
+But he's beautiful!    
 

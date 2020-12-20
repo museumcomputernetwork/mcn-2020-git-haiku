@@ -1,4 +1,4 @@
-Imaging skills flow    
-then cry all birds and fishes    
-Among the flowers    
+White cloud of mist    
+mingling with bright small shells    
+With tears.    
 

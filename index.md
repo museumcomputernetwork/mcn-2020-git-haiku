@@ -1,4 +1,4 @@
-In the twilight rain    
-visit the ancestral grave    
-are darkened    
+An old pond    
+who spends his little breakfast    
+Thanks for the knowledge    
 

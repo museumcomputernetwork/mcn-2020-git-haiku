@@ -1,4 +1,4 @@
-Oh, tranquility!    
-these heavy snow-flakes settling    
-From the kiri tree.    
+Clouds come from time to time -    
+scatters in the night; Now see    
+These dark hands of life    
 

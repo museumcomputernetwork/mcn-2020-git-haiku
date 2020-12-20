@@ -1,4 +1,4 @@
-White cloud of mist    
+Oh, tranquility!    
 these heavy snow-flakes settling    
-email confirmation demands met    
+From the kiri tree.    
 

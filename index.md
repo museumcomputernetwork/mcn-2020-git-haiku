@@ -1,4 +1,4 @@
-Spring is passing.    
-MCN is magical    
-My moonlit pillow    
+First white snow of fall    
+who spends his little breakfast    
+to read while you wait    
 

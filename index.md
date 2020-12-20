@@ -1,4 +1,4 @@
-Indoors wintertime    
-chirping, keeps the autumn gay    
-About this ignite    
+The first day of the year:    
+like ripple on the water    
+They meet, they mate    
 

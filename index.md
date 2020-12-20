@@ -1,4 +1,4 @@
-Silent the old town    
-tolling twilight bell; Temple    
-Of warriors’ dreams.    
+In the twilight rain    
+visit the ancestral grave    
+are darkened    
 

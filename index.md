@@ -1,4 +1,4 @@
-Cold first winter rain    
-The fragrant blossoms remain.    
-email confirmation demands met    
+Imaging skills flow    
+then cry all birds and fishes    
+Among the flowers    
 

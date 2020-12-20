@@ -1,4 +1,4 @@
-When you say something,    
-Not always easy to use    
-With tears.    
+Cold first winter rain    
+The fragrant blossoms remain.    
+email confirmation demands met    
 

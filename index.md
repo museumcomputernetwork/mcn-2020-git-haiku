@@ -1,4 +1,4 @@
-Temple bells die out.    
-that black crow I hate so much    
--ching me new tech skills!    
+In the sea-surf edge    
+these brilliant-hued hibiscus    
+Since there is no rice    
 

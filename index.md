@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-scatters in the night; Now see    
-These dark hands of life    
+When you say something,    
+All that remains    
+Thanks for the knowledge    
 

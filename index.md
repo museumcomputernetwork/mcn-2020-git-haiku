@@ -1,4 +1,4 @@
-Here, where a thousand    
-A frog jumps in -    
-from looking at the moon.    
+Indoors wintertime    
+chirping, keeps the autumn gay    
+About this ignite    
 

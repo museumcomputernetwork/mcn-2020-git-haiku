@@ -1,4 +1,4 @@
-An old pond    
-who spends his little breakfast    
-Thanks for the knowledge    
+White cloud of mist    
+like ripple on the water    
+to read while you wait    
 

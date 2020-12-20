@@ -1,4 +1,4 @@
-White cloud of mist    
-like ripple on the water    
-to read while you wait    
+When you say something,    
+Not always easy to use    
+With tears.    
 

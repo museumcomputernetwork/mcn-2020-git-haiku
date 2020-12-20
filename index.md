@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-captains swore grand conquest    
-The sun scatters    
+For a lovely bowl    
+The lips feel cold.    
+Splash!    
 

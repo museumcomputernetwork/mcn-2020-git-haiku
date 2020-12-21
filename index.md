@@ -1,4 +1,4 @@
-museum computer    
-it needs but shiny wings and look    
-Of warriors’ dreams.    
+In the cicada's cry    
+Penetrating the very rock,    
+Bearded, with bent canes    
 

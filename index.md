@@ -1,4 +1,4 @@
-In the cicada's cry    
-Penetrating the very rock,    
-Bearded, with bent canes    
+Ah me! I am one    
+Line that won't be deleted    
+Splash!    
 

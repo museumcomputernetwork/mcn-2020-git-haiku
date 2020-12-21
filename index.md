@@ -1,4 +1,4 @@
 Cloud of cherry-bloom    
-Here along this way but I,    
-Marks only midnight yet    
+like ripple on the water    
+Come to rest our necks    
 

@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-and bring to men a chance to rest    
-Come to rest our necks    
+Dry cheerful cricket    
+above white    
+from the kiri tree.    
 

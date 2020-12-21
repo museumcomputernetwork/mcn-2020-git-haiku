@@ -1,4 +1,4 @@
-hello and how are we    
-let us arrange these flowers    
-With tears.    
+Why so scrawny, cat?    
+that black crow I hate so much    
+from the kiri tree.    
 

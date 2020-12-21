@@ -1,4 +1,4 @@
-Camellia-petal    
-not even a magazine    
-My moonlit pillow    
+Must springtime fade?    
+these brilliant-hued hibiscus    
+Companion butterfly!    
 

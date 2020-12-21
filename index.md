@@ -1,4 +1,4 @@
-If there were fragrance    
-here at your flowering grave    
+Old dark sleepy pool    
+and bring to men a chance to rest    
 Come to rest our necks    
 

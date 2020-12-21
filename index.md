@@ -1,4 +1,4 @@
-MCN '20    
-creating git hub hides    
-It’s the Doll’s Festival.    
+The summer grasses.    
+then cry all birds and fishes    
+This autumn evening.    
 

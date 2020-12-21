@@ -1,4 +1,4 @@
-An old pond    
-Line that won't be deleted    
-Bush-clover petals    
+Camellia-petal    
+not even a magazine    
+My moonlit pillow    
 

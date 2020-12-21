@@ -1,4 +1,4 @@
-Mountain-rose petals    
-twin butterflies until, twice white    
-Our hungry donkey    
+Camellia-petal    
+tolling twilight bell; Temple    
+A little woven cape    
 

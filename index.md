@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Please don't tell my museum    
-These dark hands of life    
+Cold first winter rain    
+The lips feel cold.    
+It’s the Doll’s Festival.    
 

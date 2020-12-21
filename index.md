@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-like ripple on the water    
-Come to rest our necks    
+An old pond    
+Line that won't be deleted    
+Bush-clover petals    
 

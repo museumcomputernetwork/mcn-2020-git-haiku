@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-poor monkey, you too could use    
-Like Git and haikus!    
+Love GitHub a lot    
+spare my little buzzing friends    
+Of warriors’ dreams.    
 

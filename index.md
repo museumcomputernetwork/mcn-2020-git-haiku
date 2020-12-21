@@ -1,4 +1,4 @@
-The summer grasses.    
-then cry all birds and fishes    
-This autumn evening.    
+Why so scrawny, cat?    
+poor monkey, you too could use    
+Like Git and haikus!    
 

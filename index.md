@@ -1,4 +1,4 @@
-Ah me! I am one    
-Line that won't be deleted    
-Splash!    
+In the twilight rain    
+MCN is magical    
+Enjoying the house    
 

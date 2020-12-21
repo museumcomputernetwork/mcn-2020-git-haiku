@@ -1,4 +1,4 @@
-Must springtime fade?    
-these brilliant-hued hibiscus    
-Companion butterfly!    
+hello and how are we    
+let us arrange these flowers    
+With tears.    
 

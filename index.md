@@ -1,4 +1,4 @@
-Cold first winter rain    
-The lips feel cold.    
-It’s the Doll’s Festival.    
+Mountain-rose petals    
+twin butterflies until, twice white    
+Our hungry donkey    
 

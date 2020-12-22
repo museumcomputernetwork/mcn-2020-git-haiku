@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
-Our hungry donkey    
+Poverty's child -    
+poor monkey, you too could use    
+How soon it must die.    
 

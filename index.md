@@ -1,4 +1,4 @@
-snow falling soon now    
-visit the ancestral grave    
-Marks only midnight yet    
+Lightning -    
+The birds cry, and the fishes’ eyes are     
+A solitary bird    
 

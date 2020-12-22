@@ -1,4 +1,4 @@
-The river gathering may rains    
-is quieted with creepers    
-It’s the Doll’s Festival.    
+Under cherry-trees    
+like ripple on the water    
+These dark hands of life    
 

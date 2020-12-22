@@ -1,4 +1,4 @@
-For a lovely bowl    
-then cry all birds and fishes    
-Goes plop! Watersplash!    
+MCN day 5 -    
+Not always easy to use    
+from looking at the moon.    
 

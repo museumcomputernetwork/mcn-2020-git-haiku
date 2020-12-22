@@ -1,4 +1,4 @@
-Spring is passing.    
-who spends his little breakfast    
-This autumn evening.    
+Must springtime fade?    
+like ripple on the water    
+are darkened . . .    
 

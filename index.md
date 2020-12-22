@@ -1,4 +1,4 @@
-An old pond    
-above white    
-are darkened    
+In the sea-surf edge    
+A frog jumps in -    
+Our hungry donkey    
 

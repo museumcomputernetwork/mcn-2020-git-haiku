@@ -1,4 +1,4 @@
-For a lovely bowl    
-chirping, keeps the autumn gay    
-A lovely sunset    
+The river gathering may rains    
+is quieted with creepers    
+It’s the Doll’s Festival.    
 

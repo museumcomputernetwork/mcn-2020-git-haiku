@@ -1,4 +1,4 @@
-Lightning -    
-The birds cry, and the fishes’ eyes are     
-A solitary bird    
+Spring is passing.    
+who spends his little breakfast    
+This autumn evening.    
 

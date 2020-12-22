@@ -1,4 +1,4 @@
-exciting conference day    
-he starts to grind the rice,    
-Or backyard love?    
+Such utter silence!    
+I am off to bed - but ah!    
+A perfect evening!    
 

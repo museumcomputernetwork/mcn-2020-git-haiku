@@ -1,4 +1,4 @@
-Must springtime fade?    
-like ripple on the water    
-are darkened . . .    
+An old pond    
+above white    
+are darkened    
 

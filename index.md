@@ -1,4 +1,4 @@
-museum computer    
-he starts to grind the rice,    
-These dark hands of life    
+Cold first winter rain    
+Tiffany Sprague edits books    
+The sun scatters    
 

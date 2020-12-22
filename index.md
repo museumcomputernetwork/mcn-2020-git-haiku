@@ -1,4 +1,4 @@
-MCN day 5 -    
-Not always easy to use    
-from looking at the moon.    
+For a lovely bowl    
+chirping, keeps the autumn gay    
+A lovely sunset    
 

@@ -1,4 +1,4 @@
-The first day of the year:    
-these heavy snow-flakes settling    
-Mountain-top jewels    
+Here, where a thousand    
+is quieted with creepers    
+but inside, coffee    
 

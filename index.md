@@ -1,4 +1,4 @@
-Imaging skills flow    
-let us arrange these flowers    
-A little woven cape    
+museum computer    
+he starts to grind the rice,    
+These dark hands of life    
 

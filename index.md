@@ -1,4 +1,4 @@
-Poverty's child -    
-poor monkey, you too could use    
-How soon it must die.    
+Nine times arising    
+MCN is magical    
+A butterfly floats and balances    
 

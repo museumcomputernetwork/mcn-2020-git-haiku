@@ -1,4 +1,4 @@
-Here, where a thousand    
-is quieted with creepers    
-but inside, coffee    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+Our hungry donkey    
 

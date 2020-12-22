@@ -1,4 +1,4 @@
-Won't you come and see    
-Penetrating the very rock,    
-But he's beautiful!    
+The first day of the year:    
+these heavy snow-flakes settling    
+Mountain-top jewels    
 

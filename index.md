@@ -1,4 +1,4 @@
-The river gathering may rains    
-mingling with bright small shells    
-Morning-glory gazing    
+snow falling soon now    
+visit the ancestral grave    
+Marks only midnight yet    
 

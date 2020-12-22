@@ -1,4 +1,4 @@
-Under cherry-trees    
-like ripple on the water    
-These dark hands of life    
+Won't you come and see    
+Penetrating the very rock,    
+But he's beautiful!    
 

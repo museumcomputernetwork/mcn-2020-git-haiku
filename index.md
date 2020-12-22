@@ -1,4 +1,4 @@
-Cold first winter rain    
-Tiffany Sprague edits books    
-The sun scatters    
+For a lovely bowl    
+then cry all birds and fishes    
+Goes plop! Watersplash!    
 

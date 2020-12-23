@@ -1,4 +1,4 @@
-Carven gods long gone    
-watching us pass, met death    
-and gazes at the moon.    
+Bright red pepper-pod    
+not even a magazine    
+And so it must be    
 

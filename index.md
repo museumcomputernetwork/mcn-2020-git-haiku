@@ -1,4 +1,4 @@
-Here, where a thousand    
-How swift it is    
-With tears.    
+In the cicada's cry    
+Please don't tell my museum    
+Bush-clover petals    
 

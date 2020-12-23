@@ -1,4 +1,4 @@
-This is a haiku    
-quick unexpected frog    
-to read while you wait    
+Here, where a thousand    
+How swift it is    
+With tears.    
 

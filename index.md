@@ -1,4 +1,4 @@
-Ah me! I am one    
-Is also changed to another    
-cherry-blossoms . . .    
+Will we meet again    
+to see the moon, whose solemn pace    
+It’s the Doll’s Festival.    
 

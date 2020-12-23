@@ -1,4 +1,4 @@
-snow falling soon now    
-he starts to grind the rice,    
-Bearded, with bent canes    
+Dewdrop, let me cleanse    
+is quieted with creepers    
+Silent clouds of stars    
 

@@ -1,4 +1,4 @@
-High up in the trees    
-and bring to men a chance to rest    
-Thanks for the knowledge    
+Lady butterfly    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 

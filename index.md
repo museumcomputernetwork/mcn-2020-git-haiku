@@ -1,4 +1,4 @@
-When you say something,    
-I am off to bed - but ah!    
-A lovely sunset    
+The first day of the year:    
+There's no sign that can foretell    
+but inside, coffee    
 

@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-is quieted with creepers    
-Silent clouds of stars    
+Chirping of the quails    
+MCN is magical    
+The autumn dusk is here.    
 

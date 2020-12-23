@@ -1,4 +1,4 @@
-White cloud of mist    
-All that remains    
--ching me new tech skills!    
+High up in the trees    
+and bring to men a chance to rest    
+Thanks for the knowledge    
 

@@ -1,4 +1,4 @@
-Chirping of the quails    
-MCN is magical    
-The autumn dusk is here.    
+Clouds come from time to time -    
+not even a magazine    
+Two white butterflies?    
 

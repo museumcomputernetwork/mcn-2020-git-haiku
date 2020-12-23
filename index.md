@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-not even a magazine    
-And so it must be    
+Nine times arising    
+The birds cry, and the fishes’ eyes are     
+Thanks for the knowledge    
 

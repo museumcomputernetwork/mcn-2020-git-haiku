@@ -1,4 +1,4 @@
-Lady butterfly    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+Ah me! I am one    
+Is also changed to another    
+cherry-blossoms . . .    
 

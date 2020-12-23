@@ -1,4 +1,4 @@
-Cold first winter rain    
-the scent of flowers floating    
-Like Git and haikus!    
+This is a haiku    
+quick unexpected frog    
+to read while you wait    
 

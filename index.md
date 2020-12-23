@@ -1,4 +1,4 @@
-This is the new line    
-dead leaves alone foregather    
-A little woven cape    
+Cold first winter rain    
+the scent of flowers floating    
+Like Git and haikus!    
 

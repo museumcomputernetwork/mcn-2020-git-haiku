@@ -1,4 +1,4 @@
-Such utter silence!    
-I am off to bed - but ah!    
-A perfect evening!    
+The summer grasses.    
+Here along this way but I,    
+Muffled by hot rocks    
 

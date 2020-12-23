@@ -1,4 +1,4 @@
-Nine times arising    
-The birds cry, and the fishes’ eyes are     
-Thanks for the knowledge    
+White cloud of mist    
+All that remains    
+-ching me new tech skills!    
 

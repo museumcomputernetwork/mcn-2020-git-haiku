@@ -1,4 +1,4 @@
-The summer grasses.    
-Here along this way but I,    
-Muffled by hot rocks    
+This is the new line    
+dead leaves alone foregather    
+A little woven cape    
 

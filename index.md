@@ -1,4 +1,4 @@
-Temple bells die out.    
-adventure awaits outside    
-Silent clouds of stars    
+White cloud of mist    
+therefore our thanks dark clouds    
+Contemptuous of frost    
 

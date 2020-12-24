@@ -1,4 +1,4 @@
-In the sea-surf edge    
-the scent of flowers floating    
-Lilies on the rocks    
+Love GitHub a lot    
+here at your flowering grave    
+to read while you wait    
 

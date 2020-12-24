@@ -1,4 +1,4 @@
-If there were fragrance    
-not even a magazine    
-Marks only midnight yet    
+Lady butterfly    
+as I take my darkening path    
+Basho lines the moon    
 

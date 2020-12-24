@@ -1,4 +1,4 @@
-In the sea-surf edge    
-An herbal tea, sit, listen    
-Stabs the darkness    
+Temple bells die out.    
+adventure awaits outside    
+Silent clouds of stars    
 

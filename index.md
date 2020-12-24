@@ -1,4 +1,4 @@
-In the twilight rain    
-here at your flowering grave    
-With tears.    
+museum computer    
+MCN is magical    
+But he's beautiful!    
 

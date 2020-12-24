@@ -1,4 +1,4 @@
-MCN '20    
-All that remains    
-From the kiri tree.    
+If there were fragrance    
+not even a magazine    
+Marks only midnight yet    
 

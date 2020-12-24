@@ -1,4 +1,4 @@
-Now the swinging bridge    
-fell in silent dawn, spilling    
-Cherry-blossoms    
+Glorious the moon    
+We can learn so many things,    
+and gazes at the moon.    
 

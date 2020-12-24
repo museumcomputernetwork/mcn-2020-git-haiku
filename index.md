@@ -1,4 +1,4 @@
-Glorious the moon    
-Please don't tell my museum    
-A solitary bird    
+Daylight is here now    
+Here along this way but I,    
+Cold pale eyes pour tears    
 

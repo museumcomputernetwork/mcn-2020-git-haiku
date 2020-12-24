@@ -1,4 +1,4 @@
-exciting conference day    
-We can learn so many things,    
-Seasoned with petals    
+High up in the trees    
+watching us pass, met death    
+how interesting    
 

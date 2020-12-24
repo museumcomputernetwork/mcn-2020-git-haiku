@@ -1,4 +1,4 @@
-Glorious the moon    
-We can learn so many things,    
-and gazes at the moon.    
+In the sea-surf edge    
+the scent of flowers floating    
+Lilies on the rocks    
 

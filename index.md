@@ -1,4 +1,4 @@
 High up in the trees    
-in dusky night    
-cherry-blossoms . . .    
+even the crickets' singing    
+Darting dragon-fly!    
 

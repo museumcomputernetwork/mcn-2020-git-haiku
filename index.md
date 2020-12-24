@@ -1,4 +1,4 @@
-Temple bells die out.    
-the scent of flowers floating    
-Silent clouds of stars    
+If there were fragrance    
+sky-reflecting violets    
+A water-jewel    
 

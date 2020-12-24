@@ -1,4 +1,4 @@
-Lady butterfly    
-as I take my darkening path    
-Basho lines the moon    
+In the sea-surf edge    
+An herbal tea, sit, listen    
+Stabs the darkness    
 

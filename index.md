@@ -1,4 +1,4 @@
-museum computer    
-MCN is magical    
-But he's beautiful!    
+Oh, tranquility!    
+falling, falling, falling now    
+Silent clouds of stars    
 

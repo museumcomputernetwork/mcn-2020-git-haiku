@@ -1,4 +1,4 @@
-Daylight is here now    
-Here along this way but I,    
-Cold pale eyes pour tears    
+In the twilight rain    
+loneliness? Just one leaf    
+Enjoying the house    
 

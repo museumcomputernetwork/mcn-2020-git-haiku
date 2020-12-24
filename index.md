@@ -1,4 +1,4 @@
-If there were fragrance    
-sky-reflecting violets    
-A water-jewel    
+Glorious the moon    
+Please don't tell my museum    
+A solitary bird    
 

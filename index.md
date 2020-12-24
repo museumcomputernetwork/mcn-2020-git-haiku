@@ -1,4 +1,4 @@
-Love GitHub a lot    
+In the twilight rain    
 here at your flowering grave    
-to read while you wait    
+With tears.    
 

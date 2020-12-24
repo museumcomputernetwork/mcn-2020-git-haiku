@@ -1,4 +1,4 @@
 High up in the trees    
-watching us pass, met death    
-how interesting    
+in dusky night    
+cherry-blossoms . . .    
 

@@ -1,4 +1,4 @@
-High up in the trees    
-even the crickets' singing    
-Darting dragon-fly!    
+Now the swinging bridge    
+fell in silent dawn, spilling    
+Cherry-blossoms    
 

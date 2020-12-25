@@ -1,4 +1,4 @@
-Such utter silence!    
-just enough to bend the leaves    
-A cicada’s voice.    
+Daylight is here now    
+A frog jumps in -    
+Of faded daffodils    
 

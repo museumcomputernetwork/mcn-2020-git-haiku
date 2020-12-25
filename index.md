@@ -1,4 +1,4 @@
-Daylight is here now    
-A frog jumps in -    
-Of faded daffodils    
+Spring is passing.    
+loneliness? Just one leaf    
+Marks only midnight yet    
 

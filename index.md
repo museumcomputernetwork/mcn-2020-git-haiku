@@ -1,4 +1,4 @@
-This is the new line    
-dead leaves alone foregather    
-Among the flowers    
+Lightning -    
+I must work and attend MCN    
+Like our tendrilled life    
 

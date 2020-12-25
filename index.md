@@ -1,4 +1,4 @@
-Must springtime fade?    
-Heron's cry    
-from looking at the moon.    
+None is travelling    
+spare my little buzzing friends    
+Since there is no rice    
 

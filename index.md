@@ -1,4 +1,4 @@
-High up in the trees    
-Here along this way but I,    
-Marks only midnight yet    
+This is the new line    
+dead leaves alone foregather    
+Among the flowers    
 

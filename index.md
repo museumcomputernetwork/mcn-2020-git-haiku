@@ -1,4 +1,4 @@
-Lightning -    
-I must work and attend MCN    
-Like our tendrilled life    
+Must springtime fade?    
+Heron's cry    
+from looking at the moon.    
 

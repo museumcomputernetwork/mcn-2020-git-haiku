@@ -1,4 +1,4 @@
-Imaging skills flow    
-Heron's cry    
-the autumn dusk is here.    
+Cloud of cherry-bloom    
+in dusky night    
+Bearded, with bent canes    
 

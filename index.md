@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-in dusky night    
-Bearded, with bent canes    
+Imaging skills flow    
+these heavy snow-flakes settling    
+On the temple porch    
 

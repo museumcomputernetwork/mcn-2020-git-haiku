@@ -1,4 +1,4 @@
-Nine times arising    
-Tiffany Sprague edits books    
-Enjoying the house    
+When you say something,    
+MCN is magical    
+Mogami River.    
 

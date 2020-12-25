@@ -1,4 +1,4 @@
-MCN '20    
-How swift it is    
-And so it must be    
+High up in the trees    
+Here along this way but I,    
+Marks only midnight yet    
 

@@ -1,4 +1,4 @@
-In the twilight rain    
-loneliness? Just one leaf    
-Enjoying the house    
+exciting conference day    
+A frog jumps in -    
+A water-jewel    
 

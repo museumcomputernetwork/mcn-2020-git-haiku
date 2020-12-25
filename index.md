@@ -1,4 +1,4 @@
-exciting conference day    
-A frog jumps in -    
-A water-jewel    
+For a lovely bowl    
+Is also changed to another    
+Among the flowers    
 

@@ -1,4 +1,4 @@
-No oil to read by    
-from cold streamlets for the sea    
-CHI turns seventeen    
+snow falling soon now    
+visit the ancestral grave    
+A little woven cape    
 

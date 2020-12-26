@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-captains swore grand conquest    
-from looking at the moon.    
+exciting conference day    
+I am off to bed - but ah!    
+Splash!    
 

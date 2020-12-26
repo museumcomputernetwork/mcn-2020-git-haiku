@@ -1,4 +1,4 @@
-exciting conference day    
-I am off to bed - but ah!    
+This snowy morning    
+fell in silent dawn, spilling    
 Splash!    
 

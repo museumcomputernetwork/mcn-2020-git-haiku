@@ -1,4 +1,4 @@
-Will we meet again    
-in dusky night    
-Bearded, with bent canes    
+hello and how are we    
+the scent of flowers floating    
+But he's beautiful!    
 

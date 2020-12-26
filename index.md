@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-The Autumn wind.    
+Spring is passing.    
+Please don't tell my museum    
+are darkened    
 

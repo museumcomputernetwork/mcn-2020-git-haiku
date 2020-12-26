@@ -1,4 +1,4 @@
-snow falling soon now    
-that black crow I hate so much    
-A water-jewel    
+A owner of the old thatched hut    
+captains swore grand conquest    
+from looking at the moon.    
 

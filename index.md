@@ -1,4 +1,4 @@
-I am at the MCN    
-Heron's cry    
-How soon it must die.    
+No oil to read by    
+from cold streamlets for the sea    
+CHI turns seventeen    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-fell in silent dawn, spilling    
-Cherry-blossoms    
+Must springtime fade?    
+dead leaves alone foregather    
+Mogami River.    
 

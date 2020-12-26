@@ -1,4 +1,4 @@
-Too curious flower    
-Penetrating the very rock,    
+This is the new line    
+The fragrant blossoms remain.    
 email confirmation demands met    
 

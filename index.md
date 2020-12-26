@@ -1,4 +1,4 @@
-This is a haiku    
-spare my little buzzing friends    
-Bearded, with bent canes    
+The sea darkening    
+Is also changed to another    
+and gazes at the moon.    
 

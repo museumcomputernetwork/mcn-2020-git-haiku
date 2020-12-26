@@ -1,4 +1,4 @@
-Spring is passing.    
-Please don't tell my museum    
-are darkened    
+Will we meet again    
+in dusky night    
+Bearded, with bent canes    
 

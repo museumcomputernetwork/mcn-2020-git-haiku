@@ -1,4 +1,4 @@
-Under cherry-trees    
-and bring to men a chance to rest    
-Like Git and haikus!    
+Too curious flower    
+Penetrating the very rock,    
+email confirmation demands met    
 

@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
-the autumn dusk is here.    
+Under cherry-trees    
+and bring to men a chance to rest    
+Like Git and haikus!    
 

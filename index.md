@@ -1,4 +1,4 @@
-snow falling soon now    
-visit the ancestral grave    
-A little woven cape    
+This is a haiku    
+spare my little buzzing friends    
+Bearded, with bent canes    
 

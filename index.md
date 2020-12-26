@@ -1,4 +1,4 @@
-Cold first winter rain    
-Please don't tell my museum    
-Come to rest our necks    
+Poverty's child -    
+dead leaves alone foregather    
+With tears.    
 

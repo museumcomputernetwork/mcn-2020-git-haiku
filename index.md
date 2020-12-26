@@ -1,4 +1,4 @@
-hello and how are we    
-the scent of flowers floating    
-But he's beautiful!    
+The summer grasses.    
+fell in silent dawn, spilling    
+Cherry-blossoms    
 

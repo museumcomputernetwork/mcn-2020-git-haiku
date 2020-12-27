@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-watching us pass, met death    
-The Autumn wind.    
+Black cloudbank broken    
+above white    
+A perfect evening!    
 

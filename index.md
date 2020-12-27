@@ -1,4 +1,4 @@
-Lightning -    
-Line that won't be deleted    
-Splash!    
+The summer grasses.    
+thoughts come - and there is loneliness;    
+A perfect evening!    
 

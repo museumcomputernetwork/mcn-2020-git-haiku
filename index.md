@@ -1,4 +1,4 @@
-The first day of the year:    
-tolling twilight bell; Temple    
-Cold pale eyes pour tears    
+First white snow of fall    
+not even a magazine    
+Of dark loneliness    
 

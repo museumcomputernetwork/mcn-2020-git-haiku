@@ -1,4 +1,4 @@
-Won't you come and see    
-above white    
-Like our tendrilled life    
+When you say something,    
+he starts to grind the rice,    
+are darkened    
 

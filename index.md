@@ -1,4 +1,4 @@
-An old pond    
-Penetrating the very rock,    
-but inside, coffee    
+This is the new line    
+stretching over Sado Island    
+Like Git and haikus!    
 

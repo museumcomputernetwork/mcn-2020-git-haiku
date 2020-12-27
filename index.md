@@ -1,4 +1,4 @@
-Silent the old town    
-is quieted with creepers    
-Lilies on the rocks    
+An old pond    
+he starts to grind the rice,    
+Among the flowers    
 

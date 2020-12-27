@@ -1,4 +1,4 @@
-Black cloudbank broken    
-above white    
-A perfect evening!    
+Lightning -    
+Line that won't be deleted    
+Splash!    
 

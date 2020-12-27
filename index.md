@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
-Among the flowers    
+The first day of the year:    
+tolling twilight bell; Temple    
+Cold pale eyes pour tears    
 

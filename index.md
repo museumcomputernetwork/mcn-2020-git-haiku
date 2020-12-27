@@ -1,4 +1,4 @@
-MCN day 5 -    
-scatters in the night; Now see    
-Mogami River.    
+An old pond    
+Penetrating the very rock,    
+but inside, coffee    
 

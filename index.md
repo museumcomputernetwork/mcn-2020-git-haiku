@@ -1,4 +1,4 @@
-This is a haiku    
-visit the ancestral grave    
-Since there is no rice    
+MCN '20    
+captains swore grand conquest    
+Morning-glory gazing    
 

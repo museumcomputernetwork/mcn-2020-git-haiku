@@ -1,4 +1,4 @@
-When you say something,    
-dead leaves alone foregather    
-Stabs the darkness    
+Won't you come and see    
+above white    
+Like our tendrilled life    
 

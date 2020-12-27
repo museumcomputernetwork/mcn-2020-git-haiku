@@ -1,4 +1,4 @@
-When you say something,    
-he starts to grind the rice,    
-are darkened    
+Silent the old town    
+is quieted with creepers    
+Lilies on the rocks    
 

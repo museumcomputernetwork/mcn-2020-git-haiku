@@ -1,4 +1,4 @@
-The sea darkening    
-Is also changed to another    
-and gazes at the moon.    
+In the cicada's cry    
+An herbal tea, sit, listen    
+It’s the Doll’s Festival.    
 

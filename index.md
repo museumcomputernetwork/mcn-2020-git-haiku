@@ -1,4 +1,4 @@
-Silent the old town    
-to see the moon, whose solemn pace    
-Mountain-top jewels    
+Dry cheerful cricket    
+watching us pass, met death    
+The Autumn wind.    
 

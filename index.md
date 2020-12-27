@@ -1,4 +1,4 @@
-Chirping of the quails    
-loneliness? Just one leaf    
-email confirmation demands met    
+This is a haiku    
+visit the ancestral grave    
+Since there is no rice    
 

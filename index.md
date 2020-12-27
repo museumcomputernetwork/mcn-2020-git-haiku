@@ -1,4 +1,4 @@
-First white snow of fall    
-not even a magazine    
-Of dark loneliness    
+Spring is passing.    
+falling, falling, falling now    
+Muffled by hot rocks    
 

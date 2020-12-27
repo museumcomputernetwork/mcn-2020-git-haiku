@@ -1,4 +1,4 @@
-This is the new line    
-stretching over Sado Island    
-Like Git and haikus!    
+Dewdrop, let me cleanse    
+loneliness? Just one leaf    
+Cherry-blossoms    
 

@@ -1,4 +1,4 @@
-Such utter silence!    
-falling, falling, falling now    
-Splash!    
+An old pond    
+just enough to bend the leaves    
+How soon it must die.    
 

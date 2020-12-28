@@ -1,4 +1,4 @@
-Temple bells die out.    
-I must work and attend MCN    
-how interesting    
+When you say something,    
+in dusky night    
+A butterfly floats and balances    
 

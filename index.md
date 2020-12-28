@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-in dusky night    
-How soon it must die.    
+This snowy morning    
+soup, the salad, fish and all    
+Our hungry donkey    
 

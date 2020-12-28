@@ -1,4 +1,4 @@
-Won't you come and see    
-and bring to men a chance to rest    
-With tears.    
+Mountain-rose petals    
+I must work and attend MCN    
+to read while you wait    
 

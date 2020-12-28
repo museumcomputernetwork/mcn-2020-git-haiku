@@ -1,4 +1,4 @@
-When you say something,    
-in dusky night    
-A butterfly floats and balances    
+For a lovely bowl    
+The birds cry, and the fishes’ eyes are     
+Of warriors’ dreams.    
 

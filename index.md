@@ -1,4 +1,4 @@
-If there were fragrance    
-Twilight whippoorwill, whistle on, sweet deepener    
-Ueno? Asakura?    
+Cloud of cherry-bloom    
+in dusky night    
+How soon it must die.    
 

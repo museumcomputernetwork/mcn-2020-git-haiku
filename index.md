@@ -1,4 +1,4 @@
-This snowy morning    
-soup, the salad, fish and all    
-Our hungry donkey    
+Temple bells die out.    
+I must work and attend MCN    
+how interesting    
 

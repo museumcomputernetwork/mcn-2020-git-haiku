@@ -1,4 +1,4 @@
-Under cherry-trees    
-like ripple on the water    
-The autumn dusk is here.    
+Silent the old town    
+dead leaves alone foregather    
+Ueno? Asakura?    
 

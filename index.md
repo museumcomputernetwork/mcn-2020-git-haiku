@@ -1,4 +1,4 @@
-Love GitHub a lot    
-and bring to men a chance to rest    
-Marks only midnight yet    
+If there were fragrance    
+Twilight whippoorwill, whistle on, sweet deepener    
+Ueno? Asakura?    
 

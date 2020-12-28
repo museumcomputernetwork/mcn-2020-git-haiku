@@ -1,4 +1,4 @@
-An old pond    
-just enough to bend the leaves    
-How soon it must die.    
+Now in sad autumn    
+above white    
+Morning-glory gazing    
 

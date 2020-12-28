@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-I must work and attend MCN    
-Among the flowers    
+Poverty's child -    
+and bring to men a chance to rest    
+On the temple porch    
 

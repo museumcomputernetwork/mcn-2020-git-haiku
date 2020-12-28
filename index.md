@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-I need a coffee    
+None is travelling    
+quick unexpected frog    
+Mogami River.    
 

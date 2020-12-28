@@ -1,4 +1,4 @@
-Silent the old town    
-dead leaves alone foregather    
-Ueno? Asakura?    
+The summer grasses.    
+fell in silent dawn, spilling    
+Over the orchid    
 

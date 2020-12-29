@@ -1,4 +1,4 @@
-None is travelling    
-i understand github now    
-A lovely sunset    
+museum computer    
+A small weed    
+They meet, they mate    
 

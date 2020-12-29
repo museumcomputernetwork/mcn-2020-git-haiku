@@ -1,4 +1,4 @@
-Such utter silence!    
-adventure awaits outside    
--ching me new tech skills!    
+The summer grasses.    
+Here along this way but I,    
+These dark hands of life    
 

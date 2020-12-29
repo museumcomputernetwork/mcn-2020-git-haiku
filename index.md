@@ -1,4 +1,4 @@
-Nine times arising    
-How swift it is    
-the autumn dusk is here.    
+the zoom waiting room    
+April's air stirs in willow-leaves    
+Come to rest our necks    
 

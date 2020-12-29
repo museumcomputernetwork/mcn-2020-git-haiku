@@ -1,4 +1,4 @@
-Black cloudbank broken    
-he starts to grind the rice,    
-Since there is no rice    
+White cloud of mist    
+network is awesome for tea-    
+Darting dragon-fly!    
 

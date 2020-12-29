@@ -1,4 +1,4 @@
-Lady butterfly    
-starving for fat fish or mice    
-The Autumn wind.    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+A butterfly floats and balances    
 

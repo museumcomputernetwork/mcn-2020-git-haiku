@@ -1,4 +1,4 @@
-MCN '20    
-All that remains    
-A little woven cape    
+Indoors wintertime    
+captains swore grand conquest    
+Of faded daffodils    
 

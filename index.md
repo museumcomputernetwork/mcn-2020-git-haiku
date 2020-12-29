@@ -1,4 +1,4 @@
-museum computer    
-A small weed    
-They meet, they mate    
+Nine times arising    
+How swift it is    
+the autumn dusk is here.    
 

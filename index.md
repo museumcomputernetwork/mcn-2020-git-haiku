@@ -1,4 +1,4 @@
 None is travelling    
-A frog jumps in -    
-and gazes at the moon.    
+network is awesome for tea-    
+The sun scatters    
 

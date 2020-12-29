@@ -1,4 +1,4 @@
-Lady butterfly    
-and bring to men a chance to rest    
-Our hungry donkey    
+Such utter silence!    
+adventure awaits outside    
+-ching me new tech skills!    
 

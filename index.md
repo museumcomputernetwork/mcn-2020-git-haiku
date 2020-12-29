@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
+Spring is passing.    
+in your brief sweet waters    
 A butterfly floats and balances    
 

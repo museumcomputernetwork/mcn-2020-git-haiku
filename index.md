@@ -1,4 +1,4 @@
 An old pond    
-in dusky night    
-They meet, they mate    
+All that remains    
+Can she edit this?    
 

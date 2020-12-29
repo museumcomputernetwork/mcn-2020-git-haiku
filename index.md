@@ -1,4 +1,4 @@
-White cloud of mist    
-network is awesome for tea-    
-Darting dragon-fly!    
+None is travelling    
+A frog jumps in -    
+and gazes at the moon.    
 

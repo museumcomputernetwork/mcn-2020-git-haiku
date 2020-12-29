@@ -1,4 +1,4 @@
-For a lovely bowl    
-The birds cry, and the fishes’ eyes are     
-Of warriors’ dreams.    
+Clouds come from time to time -    
+just enough to bend the leaves    
+A lovely sunset    
 

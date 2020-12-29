@@ -1,4 +1,4 @@
-Indoors wintertime    
-captains swore grand conquest    
-Of faded daffodils    
+Black cloudbank broken    
+he starts to grind the rice,    
+Since there is no rice    
 

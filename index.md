@@ -1,4 +1,4 @@
-No oil to read by    
-creating git hub hides    
-A perfect evening!    
+Seas are wild tonight    
+thoughts come - and there is loneliness;    
+Waterfall music    
 

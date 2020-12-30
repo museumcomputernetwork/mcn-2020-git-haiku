@@ -1,4 +1,4 @@
-Oh, tranquility!    
-quick unexpected frog    
-Lilies on the rocks    
+Such utter silence!    
+visit the ancestral grave    
+Of warriors’ dreams.    
 

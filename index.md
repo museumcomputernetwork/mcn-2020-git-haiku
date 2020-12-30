@@ -1,4 +1,4 @@
-Such utter silence!    
-visit the ancestral grave    
-Of warriors’ dreams.    
+Poverty's child -    
+from cold streamlets for the sea    
+Two white butterflies?    
 

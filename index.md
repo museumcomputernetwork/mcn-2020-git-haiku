@@ -1,4 +1,4 @@
-Must springtime fade?    
-loneliness? Just one leaf    
-Crying, whirling, white    
+Silent the old town    
+Please don't tell my museum    
+Ueno? Asakura?    
 

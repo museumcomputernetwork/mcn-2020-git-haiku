@@ -1,4 +1,4 @@
-Learning something new    
-soup, the salad, fish and all    
-A cicada’s voice.    
+Imaging skills flow    
+visit the ancestral grave    
+Merge conflicts haunt me    
 

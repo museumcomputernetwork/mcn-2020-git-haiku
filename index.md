@@ -1,4 +1,4 @@
-In the sea-surf edge    
-I am off to bed - but ah!    
-Enjoying the house    
+Must springtime fade?    
+loneliness? Just one leaf    
+Crying, whirling, white    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-chirping, keeps the autumn gay    
-from the kiri tree.    
+Old dark sleepy pool    
+Heron's cry    
+A cicada’s voice.    
 

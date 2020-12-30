@@ -1,4 +1,4 @@
-The first day of the year:    
-fell in silent dawn, spilling    
--ching me new tech skills!    
+In the sea-surf edge    
+I am off to bed - but ah!    
+Enjoying the house    
 

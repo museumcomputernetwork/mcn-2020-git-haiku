@@ -1,4 +1,4 @@
-snow falling soon now    
-tolling twilight bell; Temple    
-Stabs the darkness    
+Oh, tranquility!    
+chirping, keeps the autumn gay    
+from the kiri tree.    
 

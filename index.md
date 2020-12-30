@@ -1,4 +1,4 @@
-Now the swinging bridge    
-The birds cry, and the fishes’ eyes are     
-About this ignite    
+The first day of the year:    
+fell in silent dawn, spilling    
+-ching me new tech skills!    
 

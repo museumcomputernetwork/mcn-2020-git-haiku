@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-that black crow I hate so much    
-Moon-lighted mountains!    
+I am at the MCN    
+starving for fat fish or mice    
+the autumn dusk is here.    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-Line that won't be deleted    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+that black crow I hate so much    
+Moon-lighted mountains!    
 

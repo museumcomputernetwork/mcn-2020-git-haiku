@@ -1,4 +1,4 @@
-Seas are wild tonight    
-thoughts come - and there is loneliness;    
-Waterfall music    
+Spring is passing.    
+Line that won't be deleted    
+A butterfly floats and balances    
 

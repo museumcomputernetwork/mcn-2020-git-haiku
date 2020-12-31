@@ -1,4 +1,4 @@
-Spring is passing.    
-in dusky night    
-From the kiri tree.    
+Clouds come from time to time -    
+Tiffany Sprague edits books    
+A perfect evening!    
 

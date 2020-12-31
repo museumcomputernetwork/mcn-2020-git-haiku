@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-There's no sign that can foretell    
-A cicada’s voice.    
+Clouds come from time to time -    
+in dusky night    
+Enjoying the house    
 

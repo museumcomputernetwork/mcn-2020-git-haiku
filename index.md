@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-in dusky night    
-Enjoying the house    
+Such utter silence!    
+he starts to grind the rice,    
+Ueno? Asakura?    
 

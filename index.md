@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Tiffany Sprague edits books    
-A perfect evening!    
+Now in sad autumn    
+he starts to grind the rice,    
+Companion butterfly!    
 

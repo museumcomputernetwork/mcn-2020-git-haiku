@@ -1,4 +1,4 @@
-The river gathering may rains    
-We can learn so many things,    
-Marks only midnight yet    
+Must springtime fade?    
+just enough to bend the leaves    
+My moonlit pillow    
 

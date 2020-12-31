@@ -1,4 +1,4 @@
-No oil to read by    
-How swift it is    
-On the temple porch    
+MCN '20    
+All that remains    
+and gazes at the moon.    
 

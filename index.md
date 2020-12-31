@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-All that remains    
-are darkened    
+In the twilight rain    
+like ripple on the water    
+Mogami River.    
 

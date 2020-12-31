@@ -1,4 +1,4 @@
-For a lovely bowl    
-it needs but shiny wings and look    
-the autumn dusk is here.    
+A owner of the old thatched hut    
+All that remains    
+are darkened    
 

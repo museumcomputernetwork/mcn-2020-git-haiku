@@ -1,4 +1,4 @@
-Now in sad autumn    
-he starts to grind the rice,    
-Companion butterfly!    
+Bright red pepper-pod    
+perfumes her wings by floating    
+Waterfall music    
 

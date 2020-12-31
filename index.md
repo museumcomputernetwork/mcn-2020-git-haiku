@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-adventure awaits outside    
-A cicada’s voice.    
+The first day of the year:    
+sky-reflecting violets    
+Splash!    
 

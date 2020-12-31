@@ -1,4 +1,4 @@
-I am at the MCN    
-starving for fat fish or mice    
+For a lovely bowl    
+it needs but shiny wings and look    
 the autumn dusk is here.    
 

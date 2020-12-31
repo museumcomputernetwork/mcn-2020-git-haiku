@@ -1,4 +1,4 @@
-No oil to read by    
-like ripple on the water    
-Murmuring Mogami    
+Spring is passing.    
+in dusky night    
+From the kiri tree.    
 

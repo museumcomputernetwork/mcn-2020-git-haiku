@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-perfumes her wings by floating    
-Waterfall music    
+Poverty's child -    
+watching us pass, met death    
+from looking at the moon.    
 

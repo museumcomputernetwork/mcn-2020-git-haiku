@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Heron's cry    
-The sun scatters    
+exciting conference day    
+in your brief sweet waters    
+and gazes at the moon.    
 

@@ -1,4 +1,4 @@
-None is travelling    
-Twilight whippoorwill, whistle on, sweet deepener    
-Muffled by hot rocks    
+Learning something new    
+scatters in the night; Now see    
+Can she edit this?    
 

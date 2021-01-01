@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-not even a magazine    
-Silent clouds of stars    
+museum computer    
+and bring to men a chance to rest    
+from looking at the moon.    
 

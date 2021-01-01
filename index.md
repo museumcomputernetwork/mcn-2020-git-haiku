@@ -1,4 +1,4 @@
-exciting conference day    
-loneliness? Just one leaf    
--ching me new tech skills!    
+This snowy morning    
+above white    
+the autumn dusk is here.    
 

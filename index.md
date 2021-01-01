@@ -1,4 +1,4 @@
-Temple bells die out.    
-he starts to grind the rice,    
-Murmuring Mogami    
+Dry cheerful cricket    
+Penetrating the very rock,    
+This autumn evening.    
 

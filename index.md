@@ -1,4 +1,4 @@
-This snowy morning    
-above white    
-the autumn dusk is here.    
+Dawn-shining mountains    
+Heron's cry    
+The sun scatters    
 

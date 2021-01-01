@@ -1,4 +1,4 @@
-Temple bells die out.    
-scatters in the night; Now see    
-Murmuring Mogami    
+None is travelling    
+Twilight whippoorwill, whistle on, sweet deepener    
+Muffled by hot rocks    
 

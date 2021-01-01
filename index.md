@@ -1,4 +1,4 @@
-Love GitHub a lot    
-stretching over Sado Island    
-the autumn dusk is here.    
+Seek on high bare trails    
+chirping, keeps the autumn gay    
+are darkened . . .    
 

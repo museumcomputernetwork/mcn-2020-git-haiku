@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-captains swore grand conquest    
-Companion butterfly!    
+Oh, tranquility!    
+scatters in the night; Now see    
+Of dark loneliness    
 

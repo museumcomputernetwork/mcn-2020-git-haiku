@@ -1,4 +1,4 @@
-White cloud of mist    
-All that remains    
-email confirmation demands met    
+exciting conference day    
+I must work and attend MCN    
+Stabs the darkness    
 

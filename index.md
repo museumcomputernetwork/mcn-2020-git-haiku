@@ -1,4 +1,4 @@
-museum computer    
-and bring to men a chance to rest    
-from looking at the moon.    
+White cloud of mist    
+All that remains    
+email confirmation demands met    
 

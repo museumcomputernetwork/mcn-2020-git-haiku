@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-falling, falling, falling now    
-Enjoying the house    
+Temple bells die out.    
+he starts to grind the rice,    
+Murmuring Mogami    
 

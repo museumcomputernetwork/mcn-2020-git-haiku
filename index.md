@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Here along this way but I,    
-Two white butterflies?    
+Now that eyes of hawks    
+not even a magazine    
+Silent clouds of stars    
 

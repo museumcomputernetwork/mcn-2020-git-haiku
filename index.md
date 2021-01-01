@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-How swift it is    
-the autumn dusk is here.    
+Dry cheerful cricket    
+captains swore grand conquest    
+Companion butterfly!    
 

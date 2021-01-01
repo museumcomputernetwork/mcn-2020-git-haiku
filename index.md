@@ -1,4 +1,4 @@
-Learning something new    
+Ah me! I am one    
 thoughts come - and there is loneliness;    
-Can she edit this?    
+email confirmation demands met    
 

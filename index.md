@@ -1,4 +1,4 @@
-Seek on high bare trails    
-chirping, keeps the autumn gay    
-are darkened . . .    
+Dawn-shining mountains    
+Here along this way but I,    
+Two white butterflies?    
 

@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Penetrating the very rock,    
-This autumn evening.    
+Dewdrop, let me cleanse    
+How swift it is    
+the autumn dusk is here.    
 

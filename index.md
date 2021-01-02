@@ -1,4 +1,4 @@
-Cold first winter rain    
-Exhausted from video    
-Marks only midnight yet    
+If there were fragrance    
+I must work and attend MCN    
+Cold pale eyes pour tears    
 

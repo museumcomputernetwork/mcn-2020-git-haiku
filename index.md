@@ -1,4 +1,4 @@
-Ballet in the air    
-to see the moon, whose solemn pace    
-It’s the Doll’s Festival.    
+Under cherry-trees    
+these heavy snow-flakes settling    
+They meet, they mate    
 

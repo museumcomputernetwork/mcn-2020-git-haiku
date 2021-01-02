@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-tolling twilight bell; Temple    
-But he's beautiful!    
+Cold first winter rain    
+Exhausted from video    
+Marks only midnight yet    
 

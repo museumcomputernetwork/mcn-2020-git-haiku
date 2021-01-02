@@ -1,4 +1,4 @@
-Oh, tranquility!    
-A frog jumps in -    
-and gazes at the moon.    
+An old pond    
+How swift it is    
+Bearded, with bent canes    
 

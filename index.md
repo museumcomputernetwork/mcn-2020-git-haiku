@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-creating git hub hides    
-It’s the Doll’s Festival.    
+In the cicada's cry    
+oh voices of the wild ducks    
+Morning-glory gazing    
 

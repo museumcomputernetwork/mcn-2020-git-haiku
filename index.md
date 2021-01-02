@@ -1,4 +1,4 @@
-exciting conference day    
-I must work and attend MCN    
-Stabs the darkness    
+Poverty's child -    
+oh voices of the wild ducks    
+Mogami River.    
 

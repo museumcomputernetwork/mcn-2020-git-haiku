@@ -1,4 +1,4 @@
 Oh, tranquility!    
-Heron's cry    
-Over the orchid    
+A frog jumps in -    
+and gazes at the moon.    
 

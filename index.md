@@ -1,4 +1,4 @@
-Lady butterfly    
-Not always easy to use    
-Since there is no rice    
+Dewdrop, let me cleanse    
+then cry all birds and fishes    
+With tears.    
 

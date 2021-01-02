@@ -1,4 +1,4 @@
-Will we meet again    
+Ah me! I am one    
 The birds cry, and the fishes’ eyes are     
-A cicada’s voice.    
+to read while you wait    
 

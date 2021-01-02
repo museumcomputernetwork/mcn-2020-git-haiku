@@ -1,4 +1,4 @@
-This is a haiku    
-I must work and attend MCN    
-Of faded daffodils    
+Cold first winter rain    
+above white    
+Companion butterfly!    
 

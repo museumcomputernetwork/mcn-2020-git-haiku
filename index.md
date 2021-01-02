@@ -1,4 +1,4 @@
-Under cherry-trees    
-these heavy snow-flakes settling    
-They meet, they mate    
+Indoors wintertime    
+to see the moon, whose solemn pace    
+About this ignite    
 

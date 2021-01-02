@@ -1,4 +1,4 @@
-Poverty's child -    
-oh voices of the wild ducks    
-Mogami River.    
+Now that eyes of hawks    
+tolling twilight bell; Temple    
+But he's beautiful!    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-captains swore grand conquest    
-Our hungry donkey    
+Now that eyes of hawks    
+adventure awaits outside    
+from the kiri tree.    
 

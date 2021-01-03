@@ -1,4 +1,4 @@
-The first day of the year:    
-A small weed    
-are darkened    
+Won't you come and see    
+MCN is magical    
+How soon it must die.    
 

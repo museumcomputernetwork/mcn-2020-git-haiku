@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-adventure awaits outside    
-from the kiri tree.    
+Ballet in the air    
+spare my little buzzing friends    
+Bush-clover petals    
 

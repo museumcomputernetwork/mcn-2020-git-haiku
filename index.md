@@ -1,4 +1,4 @@
-No oil to read by    
-An herbal tea, sit, listen    
-and gazes at the moon.    
+When you say something,    
+sky-reflecting violets    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-Now in sad autumn    
-Twilight whippoorwill, whistle on, sweet deepener    
-A little woven cape    
+Here, where a thousand    
+thoughts come - and there is loneliness;    
+Waterfall music    
 

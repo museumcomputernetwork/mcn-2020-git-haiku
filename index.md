@@ -1,4 +1,4 @@
-I am at the MCN    
-tolling twilight bell; Temple    
-Tall grass their monument    
+This snowy morning    
+spare my little buzzing friends    
+Bearded, with bent canes    
 

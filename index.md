@@ -1,4 +1,4 @@
-Ballet in the air    
-spare my little buzzing friends    
-Bush-clover petals    
+The first day of the year:    
+A small weed    
+are darkened    
 

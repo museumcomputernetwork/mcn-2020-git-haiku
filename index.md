@@ -1,4 +1,4 @@
-None is travelling    
-Heron's cry    
-Morning-glory gazing    
+Now in sad autumn    
+Twilight whippoorwill, whistle on, sweet deepener    
+A little woven cape    
 

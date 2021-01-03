@@ -1,4 +1,4 @@
-Seek on high bare trails    
-The fragrant blossoms remain.    
-Cherry-blossoms    
+Must springtime fade?    
+oh voices of the wild ducks    
+On the temple porch    
 

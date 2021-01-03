@@ -1,4 +1,4 @@
-In the cicada's cry    
-twin butterflies until, twice white    
-from the kiri tree.    
+Won't you come and see    
+it needs but shiny wings and look    
+Moon-lighted mountains!    
 

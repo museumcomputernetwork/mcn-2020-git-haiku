@@ -1,4 +1,4 @@
-If there were fragrance    
-even the crickets' singing    
-Mountain-top jewels    
+I am at the MCN    
+tolling twilight bell; Temple    
+Tall grass their monument    
 

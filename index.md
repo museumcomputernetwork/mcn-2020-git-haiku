@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-How swift it is    
--ching me new tech skills!    
+In the cicada's cry    
+twin butterflies until, twice white    
+from the kiri tree.    
 

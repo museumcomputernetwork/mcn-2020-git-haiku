@@ -1,4 +1,4 @@
-When you say something,    
-sky-reflecting violets    
-How soon it must die.    
+The summer grasses.    
+thoughts come - and there is loneliness;    
+Among the flowers    
 

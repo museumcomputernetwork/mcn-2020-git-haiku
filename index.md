@@ -1,4 +1,4 @@
-The summer grasses.    
-thoughts come - and there is loneliness;    
-Among the flowers    
+Seek on high bare trails    
+mingling with bright small shells    
+The autumn dusk is here.    
 

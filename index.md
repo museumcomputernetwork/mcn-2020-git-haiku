@@ -1,4 +1,4 @@
-Seek on high bare trails    
-mingling with bright small shells    
-The autumn dusk is here.    
+hello and how are we    
+We can learn so many things,    
+Silent clouds of stars    
 

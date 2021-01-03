@@ -1,4 +1,4 @@
-MCN '20    
-therefore our thanks dark clouds    
-The sun scatters    
+Now that eyes of hawks    
+How swift it is    
+-ching me new tech skills!    
 

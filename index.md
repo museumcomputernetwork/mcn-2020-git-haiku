@@ -1,4 +1,4 @@
-This snowy morning    
-spare my little buzzing friends    
-Bearded, with bent canes    
+MCN '20    
+therefore our thanks dark clouds    
+The sun scatters    
 

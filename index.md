@@ -1,4 +1,4 @@
-Won't you come and see    
-MCN is magical    
-How soon it must die.    
+This is the new line    
+these brilliant-hued hibiscus    
+Enjoying the house    
 

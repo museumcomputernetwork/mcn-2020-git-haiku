@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Penetrating the very rock,    
-About this ignite    
+In the sea-surf edge    
+There's no sign that can foretell    
+A solitary bird    
 

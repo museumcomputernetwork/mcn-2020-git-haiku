@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-watching us pass, met death    
-I need a coffee    
+A owner of the old thatched hut    
+even the crickets' singing    
+Splash!    
 

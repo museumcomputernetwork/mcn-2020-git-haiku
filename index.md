@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Is also changed to another    
-Bush-clover petals    
+Learning something new    
+these brilliant-hued hibiscus    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-Won't you come and see    
-the scent of flowers floating    
-And so it must be    
+Poverty's child -    
+to see the moon, whose solemn pace    
+to read while you wait    
 

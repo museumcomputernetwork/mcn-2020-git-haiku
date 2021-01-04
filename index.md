@@ -1,4 +1,4 @@
-Learning something new    
-these brilliant-hued hibiscus    
-From the kiri tree.    
+First white snow of fall    
+he starts to grind the rice,    
+how interesting    
 

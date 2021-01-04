@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Splash!    
+Black cloudbank broken    
+All that remains    
+Bush-clover petals    
 

@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-even the crickets' singing    
-Splash!    
+Indoors wintertime    
+dead leaves alone foregather    
+Of faded daffodils    
 

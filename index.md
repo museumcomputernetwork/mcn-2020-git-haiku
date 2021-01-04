@@ -1,4 +1,4 @@
-Indoors wintertime    
-dead leaves alone foregather    
-Of faded daffodils    
+Temple bells die out.    
+in your brief sweet waters    
+Seasoned with petals    
 

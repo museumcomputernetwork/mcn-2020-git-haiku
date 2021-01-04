@@ -1,4 +1,4 @@
-First white snow of fall    
-he starts to grind the rice,    
-how interesting    
+Under cherry-trees    
+let us to the road again    
+With tears.    
 

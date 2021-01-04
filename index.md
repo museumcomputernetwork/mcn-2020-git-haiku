@@ -1,4 +1,4 @@
-In the sea-surf edge    
-chirping, keeps the autumn gay    
-With tears.    
+Imaging skills flow    
+mingling with bright small shells    
+Like our tendrilled life    
 

@@ -1,4 +1,4 @@
-White cloud of mist    
-sky-reflecting violets    
-to read while you wait    
+Spring is passing.    
+How swift it is    
+Or backyard love?    
 

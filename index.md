@@ -1,4 +1,4 @@
-Won't you come and see    
-it needs but shiny wings and look    
-Moon-lighted mountains!    
+White cloud of mist    
+sky-reflecting violets    
+to read while you wait    
 

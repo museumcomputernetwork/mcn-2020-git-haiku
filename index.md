@@ -1,4 +1,4 @@
-Imaging skills flow    
-mingling with bright small shells    
-Like our tendrilled life    
+Seek on high bare trails    
+Penetrating the very rock,    
+About this ignite    
 

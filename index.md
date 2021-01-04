@@ -1,4 +1,4 @@
-Poverty's child -    
-to see the moon, whose solemn pace    
-to read while you wait    
+Cloud of cherry-bloom    
+watching us pass, met death    
+I need a coffee    
 

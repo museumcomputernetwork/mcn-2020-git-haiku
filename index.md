@@ -1,4 +1,4 @@
-Temple bells die out.    
-in your brief sweet waters    
-Seasoned with petals    
+Dawn-shining mountains    
+There's no sign that can foretell    
+Among the flowers    
 

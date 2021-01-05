@@ -1,4 +1,4 @@
-The river gathering may rains    
-dead leaves alone foregather    
-from the kiri tree.    
+Wake! The sky is light!    
+network is awesome for tea-    
+Darting dragon-fly!    
 

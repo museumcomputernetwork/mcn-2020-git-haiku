@@ -1,4 +1,4 @@
-The rains of summer join together.    
-i understand github now    
-The autumn dusk is here.    
+Now that eyes of hawks    
+sky-reflecting violets    
+It’s the Doll’s Festival.    
 

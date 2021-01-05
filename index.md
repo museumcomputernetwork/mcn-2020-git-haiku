@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-network is awesome for tea-    
-Darting dragon-fly!    
+Will we meet again    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 

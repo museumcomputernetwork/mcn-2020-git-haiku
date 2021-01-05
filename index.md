@@ -1,4 +1,4 @@
-Camellia-petal    
-therefore our thanks dark clouds    
-how interesting    
+In the twilight rain    
+the scent of flowers floating    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-In the twilight rain    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+stretching over Sado Island    
+Of warriors’ dreams.    
 

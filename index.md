@@ -1,4 +1,4 @@
-In the twilight rain    
-who spends his little breakfast    
-Cherry-blossoms    
+Why so scrawny, cat?    
+Here along this way but I,    
+Basho lines the moon    
 

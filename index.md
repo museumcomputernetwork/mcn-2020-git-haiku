@@ -1,4 +1,4 @@
-Oh, tranquility!    
-April's air stirs in willow-leaves    
-Crying, whirling, white    
+An old pond    
+Heron's cry    
+Contemptuous of frost    
 

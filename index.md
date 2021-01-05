@@ -1,4 +1,4 @@
-This is the new line    
-All that remains    
-Bush-clover petals    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+Splash!    
 

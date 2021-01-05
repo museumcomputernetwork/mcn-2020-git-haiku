@@ -1,4 +1,4 @@
-Nine times arising    
-dead leaves alone foregather    
-cherry-blossoms . . .    
+MCN '20    
+chirping, keeps the autumn gay    
+-ching me new tech skills!    
 

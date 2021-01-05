@@ -1,4 +1,4 @@
-Lightning -    
-creating git hub hides    
-Goes plop! Watersplash!    
+Oh, tranquility!    
+April's air stirs in willow-leaves    
+Crying, whirling, white    
 

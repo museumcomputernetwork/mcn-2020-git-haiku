@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-Splash!    
+The summer grasses.    
+We can learn so many things,    
+are darkened    
 

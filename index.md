@@ -1,4 +1,4 @@
-Must springtime fade?    
-April's air stirs in willow-leaves    
-Like Git and haikus!    
+Nine times arising    
+dead leaves alone foregather    
+cherry-blossoms . . .    
 

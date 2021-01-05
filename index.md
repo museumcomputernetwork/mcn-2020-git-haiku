@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Here along this way but I,    
-Basho lines the moon    
+Dawn-shining mountains    
+just enough to bend the leaves    
+A lovely sunset    
 

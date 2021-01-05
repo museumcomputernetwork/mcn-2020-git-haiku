@@ -1,4 +1,4 @@
-Oh, tranquility!    
-An herbal tea, sit, listen    
-And so it must be    
+Lightning -    
+creating git hub hides    
+Goes plop! Watersplash!    
 

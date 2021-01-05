@@ -1,4 +1,4 @@
-The summer grasses.    
-We can learn so many things,    
-are darkened    
+Oh, tranquility!    
+An herbal tea, sit, listen    
+And so it must be    
 

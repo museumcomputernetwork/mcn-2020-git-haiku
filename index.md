@@ -1,4 +1,4 @@
-Learning something new    
-Here along this way but I,    
-are darkened . . .    
+I am at the MCN    
+tolling twilight bell; Temple    
+Mogami River.    
 

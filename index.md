@@ -1,4 +1,4 @@
-Lightning -    
-i understand github now    
-From the kiri tree.    
+Clouds come from time to time -    
+mingling with bright small shells    
+The sun scatters    
 

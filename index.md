@@ -1,4 +1,4 @@
-An old pond    
-visit the ancestral grave    
-Or backyard love?    
+The summer grasses.    
+in dusky night    
+Two white butterflies?    
 

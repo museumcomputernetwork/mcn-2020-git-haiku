@@ -1,4 +1,4 @@
-Indoors wintertime    
-above white    
-Of faded daffodils    
+Learning something new    
+Here along this way but I,    
+are darkened . . .    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-mingling with bright small shells    
-The sun scatters    
+None is travelling    
+Here along this way but I,    
+Mountain-top jewels    
 

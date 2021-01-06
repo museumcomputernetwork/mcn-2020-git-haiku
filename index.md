@@ -1,4 +1,4 @@
-None is travelling    
-Here along this way but I,    
-Mountain-top jewels    
+Oh, tranquility!    
+A frog jumps in -    
+Over the orchid    
 

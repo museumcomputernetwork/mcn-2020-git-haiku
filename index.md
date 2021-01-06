@@ -1,4 +1,4 @@
-I am at the MCN    
-tolling twilight bell; Temple    
-Mogami River.    
+In the cicada's cry    
+scatters in the night; Now see    
+Splash!    
 

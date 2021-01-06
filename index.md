@@ -1,4 +1,4 @@
-Oh, tranquility!    
-A frog jumps in -    
-Over the orchid    
+Indoors wintertime    
+above white    
+Of faded daffodils    
 

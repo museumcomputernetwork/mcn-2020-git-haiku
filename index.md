@@ -1,4 +1,4 @@
-In the twilight rain    
-perfumes her wings by floating    
-Murmuring Mogami    
+A owner of the old thatched hut    
+just enough to bend the leaves    
+Two white butterflies?    
 

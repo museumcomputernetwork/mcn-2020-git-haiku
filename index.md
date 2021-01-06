@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-creating git hub hides    
-Since there is no rice    
+Swallow in the dusk    
+and bring to men a chance to rest    
+Marks only midnight yet    
 

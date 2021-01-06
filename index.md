@@ -1,4 +1,4 @@
-Won't you come and see    
-thoughts come - and there is loneliness;    
-but inside, coffee    
+In the twilight rain    
+perfumes her wings by floating    
+Murmuring Mogami    
 

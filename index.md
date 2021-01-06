@@ -1,4 +1,4 @@
-Poverty's child -    
-An herbal tea, sit, listen    
-The autumn dusk is here.    
+High up in the trees    
+Penetrating the very rock,    
+Companion butterfly!    
 

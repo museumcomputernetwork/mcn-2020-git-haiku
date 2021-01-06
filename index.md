@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-just enough to bend the leaves    
-Two white butterflies?    
+Poverty's child -    
+An herbal tea, sit, listen    
+The autumn dusk is here.    
 

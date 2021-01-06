@@ -1,4 +1,4 @@
-In the cicada's cry    
-scatters in the night; Now see    
-Splash!    
+A owner of the old thatched hut    
+creating git hub hides    
+Since there is no rice    
 

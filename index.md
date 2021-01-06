@@ -1,4 +1,4 @@
-Lady butterfly    
-not even a magazine    
-Of warriors’ dreams.    
+Poverty's child -    
+A frog jumps in -    
+I need a coffee    
 

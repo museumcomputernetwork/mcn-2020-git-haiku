@@ -1,4 +1,4 @@
-Indoors wintertime    
-How swift it is    
-Morning-glory gazing    
+Black cloudbank broken    
+Is also changed to another    
+A little woven cape    
 

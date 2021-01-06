@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-I need a coffee    
+Indoors wintertime    
+How swift it is    
+Morning-glory gazing    
 

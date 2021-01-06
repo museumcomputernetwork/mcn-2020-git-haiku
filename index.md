@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-just enough to bend the leaves    
-A lovely sunset    
+An old pond    
+visit the ancestral grave    
+Or backyard love?    
 

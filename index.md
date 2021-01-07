@@ -1,4 +1,4 @@
-The rains of summer join together.    
-watching us pass, met death    
-How soon it must die.    
+Under cherry-trees    
+just enough to bend the leaves    
+email confirmation demands met    
 

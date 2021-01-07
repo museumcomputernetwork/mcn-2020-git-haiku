@@ -1,4 +1,4 @@
-Old dark sleepy pool    
+Ah me! I am one    
 How swift it is    
-and gazes at the moon.    
+Muffled by hot rocks    
 

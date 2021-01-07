@@ -1,4 +1,4 @@
-Camellia-petal    
-The birds cry, and the fishes’ eyes are     
-My moonlit pillow    
+Glorious the moon    
+these brilliant-hued hibiscus    
+Mountain-top jewels    
 

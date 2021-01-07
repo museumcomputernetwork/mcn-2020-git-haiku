@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Is also changed to another    
-A cicada’s voice.    
+Old dark sleepy pool    
+How swift it is    
+and gazes at the moon.    
 

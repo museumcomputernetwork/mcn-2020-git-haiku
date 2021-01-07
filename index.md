@@ -1,4 +1,4 @@
-Glorious the moon    
-these brilliant-hued hibiscus    
-Mountain-top jewels    
+Dewdrop, let me cleanse    
+fell in silent dawn, spilling    
+But he's beautiful!    
 

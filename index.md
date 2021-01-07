@@ -1,4 +1,4 @@
-Swallow in the dusk    
-and bring to men a chance to rest    
-Marks only midnight yet    
+For a lovely bowl    
+How swift it is    
+Merge conflicts haunt me    
 

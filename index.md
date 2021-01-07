@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-fell in silent dawn, spilling    
-But he's beautiful!    
+Mountain-rose petals    
+perfumes her wings by floating    
+Splash!    
 

@@ -1,4 +1,4 @@
-Mountain-rose petals    
-perfumes her wings by floating    
-Splash!    
+Ah me! I am one    
+the scent of flowers floating    
+Mogami River.    
 

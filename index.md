@@ -1,4 +1,4 @@
-Ah me! I am one    
-the scent of flowers floating    
-Mogami River.    
+Seas are wild tonight    
+Penetrating the very rock,    
+My moonlit pillow    
 

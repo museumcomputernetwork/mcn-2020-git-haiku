@@ -1,4 +1,4 @@
-Seek on high bare trails    
-soup, the salad, fish and all    
-Bearded, with bent canes    
+Wake! The sky is light!    
+Is also changed to another    
+A cicada’s voice.    
 

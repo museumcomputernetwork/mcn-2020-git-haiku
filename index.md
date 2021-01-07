@@ -1,4 +1,4 @@
-Imaging skills flow    
-creating git hub hides    
-I need a coffee    
+The rains of summer join together.    
+I am off to bed - but ah!    
+are darkened . . .    
 

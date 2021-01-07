@@ -1,4 +1,4 @@
-Won't you come and see    
-soup, the salad, fish and all    
-This autumn evening.    
+None is travelling    
+How swift it is    
+Our hungry donkey    
 

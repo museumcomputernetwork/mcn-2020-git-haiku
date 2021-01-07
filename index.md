@@ -1,4 +1,4 @@
-MCN '20    
-scatters in the night; Now see    
-Of warriors’ dreams.    
+Won't you come and see    
+soup, the salad, fish and all    
+This autumn evening.    
 

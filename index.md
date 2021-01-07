@@ -1,4 +1,4 @@
-None is travelling    
-How swift it is    
-Our hungry donkey    
+Black cloudbank broken    
+spare my little buzzing friends    
+Muffled by hot rocks    
 

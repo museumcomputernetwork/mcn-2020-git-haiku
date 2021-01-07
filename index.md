@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-loneliness? Just one leaf    
-Splash!    
+Camellia-petal    
+Penetrating the very rock,    
+Morning-glory gazing    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-these heavy snow-flakes settling    
-how interesting    
+Camellia-petal    
+The birds cry, and the fishes’ eyes are     
+My moonlit pillow    
 

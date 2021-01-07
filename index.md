@@ -1,4 +1,4 @@
-For a lovely bowl    
-How swift it is    
-Merge conflicts haunt me    
+MCN '20    
+scatters in the night; Now see    
+Of warriors’ dreams.    
 

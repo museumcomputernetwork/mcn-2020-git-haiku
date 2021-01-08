@@ -1,4 +1,4 @@
-Oh, tranquility!    
+Wake! The sky is light!    
 All that remains    
-And so it must be    
+A lovely sunset    
 

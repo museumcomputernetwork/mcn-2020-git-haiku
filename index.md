@@ -1,4 +1,4 @@
-Ah me! I am one    
-chirping, keeps the autumn gay    
-These dark hands of life    
+Temple bells die out.    
+starving for fat fish or mice    
+It’s the Doll’s Festival.    
 

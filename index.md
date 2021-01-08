@@ -1,4 +1,4 @@
-Ah me! I am one    
-How swift it is    
-Muffled by hot rocks    
+I am at the MCN    
+perfumes her wings by floating    
+Marks only midnight yet    
 

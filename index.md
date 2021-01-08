@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-Ueno? Asakura?    
+Carven gods long gone    
+How swift it is    
+Muffled by hot rocks    
 

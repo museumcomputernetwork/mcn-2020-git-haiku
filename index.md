@@ -1,4 +1,4 @@
-Here, where a thousand    
-loneliness? Just one leaf    
-And so it must be    
+The first day of the year:    
+Please don't tell my museum    
+cherry-blossoms . . .    
 

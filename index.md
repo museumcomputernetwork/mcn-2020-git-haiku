@@ -1,4 +1,4 @@
-Carven gods long gone    
-How swift it is    
-Muffled by hot rocks    
+Cold first winter rain    
+April's air stirs in willow-leaves    
+A perfect evening!    
 

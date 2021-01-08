@@ -1,4 +1,4 @@
-First white snow of fall    
-let us arrange these flowers    
-A cicada’s voice.    
+Black cloudbank broken    
+soup, the salad, fish and all    
+Bearded, with bent canes    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-There's no sign that can foretell    
-from looking at the moon.    
+First white snow of fall    
+let us arrange these flowers    
+A cicada’s voice.    
 

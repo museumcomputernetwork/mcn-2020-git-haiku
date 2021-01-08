@@ -1,4 +1,4 @@
-Wake! The sky is light!    
+When you say something,    
 All that remains    
-A lovely sunset    
+On the temple porch    
 

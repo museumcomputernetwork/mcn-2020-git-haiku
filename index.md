@@ -1,4 +1,4 @@
-First white snow of fall    
-perfumes her wings by floating    
-And evening bell    
+The rains of summer join together.    
+There's no sign that can foretell    
+from looking at the moon.    
 

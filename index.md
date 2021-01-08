@@ -1,4 +1,4 @@
-Love GitHub a lot    
-oh voices of the wild ducks    
-Bush-clover petals    
+Oh, tranquility!    
+All that remains    
+And so it must be    
 

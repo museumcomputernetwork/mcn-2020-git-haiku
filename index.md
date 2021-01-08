@@ -1,4 +1,4 @@
-When you say something,    
-All that remains    
-On the temple porch    
+Such utter silence!    
+creating git hub hides    
+Cherry-blossoms    
 

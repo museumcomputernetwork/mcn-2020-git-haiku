@@ -1,4 +1,4 @@
-Cold first winter rain    
-April's air stirs in willow-leaves    
-A perfect evening!    
+Seek on high bare trails    
+who spends his little breakfast    
+Basho lines the moon    
 

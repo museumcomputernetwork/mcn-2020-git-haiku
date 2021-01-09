@@ -1,4 +1,4 @@
-No oil to read by    
-Please don't tell my museum    
+Too curious flower    
+and bring to men a chance to rest    
 Mogami River.    
 

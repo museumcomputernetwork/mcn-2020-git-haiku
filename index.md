@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-This autumn evening.    
+No oil to read by    
+Please don't tell my museum    
+Mogami River.    
 

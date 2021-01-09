@@ -1,4 +1,4 @@
-The rains of summer join together.    
-mingling with bright small shells    
-Mountain-top jewels    
+I am at the MCN    
+fell in silent dawn, spilling    
+About this ignite    
 

@@ -1,4 +1,4 @@
-White cloud of mist    
-oh voices of the wild ducks    
-Like our tendrilled life    
+Here, where a thousand    
+Twilight whippoorwill, whistle on, sweet deepener    
+The Autumn wind.    
 

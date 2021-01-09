@@ -1,4 +1,4 @@
-Chirping of the quails    
+Dewdrop, let me cleanse    
 above white    
-Can she edit this?    
+From the kiri tree.    
 

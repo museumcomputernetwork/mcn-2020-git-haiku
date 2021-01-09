@@ -1,4 +1,4 @@
-Poverty's child -    
-Not always easy to use    
-Lilies on the rocks    
+Chirping of the quails    
+that black crow I hate so much    
+Murmuring Mogami    
 

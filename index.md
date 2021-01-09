@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-in your brief sweet waters    
-Mogami River.    
+First white snow of fall    
+loneliness? Just one leaf    
+are darkened    
 

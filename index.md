@@ -1,4 +1,4 @@
-Here, where a thousand    
-Twilight whippoorwill, whistle on, sweet deepener    
+Swallow in the dusk    
+above white    
 The Autumn wind.    
 

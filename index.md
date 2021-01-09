@@ -1,4 +1,4 @@
-Too curious flower    
-and bring to men a chance to rest    
-Mogami River.    
+Poverty's child -    
+Not always easy to use    
+Lilies on the rocks    
 

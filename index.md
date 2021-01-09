@@ -1,4 +1,4 @@
-Swallow in the dusk    
-above white    
-The Autumn wind.    
+Now that eyes of hawks    
+in your brief sweet waters    
+Mogami River.    
 

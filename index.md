@@ -1,4 +1,4 @@
-None is travelling    
-Here along this way but I,    
-cherry-blossoms . . .    
+White cloud of mist    
+oh voices of the wild ducks    
+Like our tendrilled life    
 

@@ -1,4 +1,4 @@
-I am at the MCN    
-fell in silent dawn, spilling    
-About this ignite    
+For a lovely bowl    
+The birds cry, and the fishes’ eyes are     
+Waterfall music    
 

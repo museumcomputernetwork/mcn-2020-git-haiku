@@ -1,4 +1,4 @@
-The first day of the year:    
-The fragrant blossoms remain.    
-Ueno? Asakura?    
+None is travelling    
+Here along this way but I,    
+cherry-blossoms . . .    
 

@@ -1,4 +1,4 @@
-Indoors wintertime    
-A small weed    
-Waterfall music    
+The first day of the year:    
+The fragrant blossoms remain.    
+Ueno? Asakura?    
 

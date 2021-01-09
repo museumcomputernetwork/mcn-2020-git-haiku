@@ -1,4 +1,4 @@
-First white snow of fall    
-loneliness? Just one leaf    
-are darkened    
+The rains of summer join together.    
+mingling with bright small shells    
+Mountain-top jewels    
 

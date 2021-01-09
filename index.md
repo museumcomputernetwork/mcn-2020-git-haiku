@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-April's air stirs in willow-leaves    
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+How swift it is    
+This autumn evening.    
 

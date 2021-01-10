@@ -1,4 +1,4 @@
-Imaging skills flow    
-scatters in the night; Now see    
-Of warriors’ dreams.    
+This is a haiku    
+dead leaves alone foregather    
+Bush-clover petals    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-How swift it is    
-Tall grass their monument    
+Imaging skills flow    
+scatters in the night; Now see    
+Of warriors’ dreams.    
 

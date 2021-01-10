@@ -1,4 +1,4 @@
-Now the swinging bridge    
-The fragrant blossoms remain.    
-Basho lines the moon    
+Carven gods long gone    
+Not always easy to use    
+Come to rest our necks    
 

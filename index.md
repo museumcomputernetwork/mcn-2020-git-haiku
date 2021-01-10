@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-A butterfly floats and balances    
+The first day of the year:    
+A small weed    
+Of faded daffodils    
 

@@ -1,4 +1,4 @@
-In the sea-surf edge    
-creating git hub hides    
-But he's beautiful!    
+MCN '20    
+MCN is magical    
+Moon-lighted mountains!    
 

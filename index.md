@@ -1,4 +1,4 @@
-The first day of the year:    
-poor monkey, you too could use    
-From the kiri tree.    
+Spring is passing.    
+Please don't tell my museum    
+Of faded daffodils    
 

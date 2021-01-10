@@ -1,4 +1,4 @@
-Will we meet again    
-quick unexpected frog    
-are darkened    
+Dawn-shining mountains    
+oh voices of the wild ducks    
+Bearded, with bent canes    
 

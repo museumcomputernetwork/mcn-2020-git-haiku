@@ -1,4 +1,4 @@
-In the cicada's cry    
-stretching over Sado Island    
-A water-jewel    
+exciting conference day    
+in dusky night    
+Among the flowers    
 

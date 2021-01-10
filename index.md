@@ -1,4 +1,4 @@
-Spring is passing.    
-Please don't tell my museum    
-Of faded daffodils    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+A butterfly floats and balances    
 

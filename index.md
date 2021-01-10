@@ -1,4 +1,4 @@
-exciting conference day    
-in dusky night    
-Among the flowers    
+Will we meet again    
+quick unexpected frog    
+are darkened    
 

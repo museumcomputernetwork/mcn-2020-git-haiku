@@ -1,4 +1,4 @@
-The first day of the year:    
-A small weed    
-Of faded daffodils    
+Silent the old town    
+he starts to grind the rice,    
+Like Git and haikus!    
 

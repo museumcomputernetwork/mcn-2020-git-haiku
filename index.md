@@ -1,4 +1,4 @@
-MCN '20    
-MCN is magical    
-Moon-lighted mountains!    
+The first day of the year:    
+poor monkey, you too could use    
+From the kiri tree.    
 

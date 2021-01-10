@@ -1,4 +1,4 @@
-An old pond    
-sky-reflecting violets    
-Merge conflicts haunt me    
+In the sea-surf edge    
+creating git hub hides    
+But he's beautiful!    
 

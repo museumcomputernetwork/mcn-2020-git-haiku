@@ -1,4 +1,4 @@
-This is a haiku    
-dead leaves alone foregather    
-Bush-clover petals    
+Silent the old town    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 

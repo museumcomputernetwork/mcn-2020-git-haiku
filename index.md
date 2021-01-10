@@ -1,4 +1,4 @@
-Carven gods long gone    
-Not always easy to use    
-Come to rest our necks    
+An old pond    
+sky-reflecting violets    
+Merge conflicts haunt me    
 

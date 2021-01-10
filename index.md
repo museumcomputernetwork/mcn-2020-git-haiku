@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-Cherry-blossoms    
+In the cicada's cry    
+stretching over Sado Island    
+A water-jewel    
 

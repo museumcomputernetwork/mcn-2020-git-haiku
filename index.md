@@ -1,4 +1,4 @@
-Won't you come and see    
-tolling twilight bell; Temple    
-Cold pale eyes pour tears    
+Dry cheerful cricket    
+in dusky night    
+but inside, coffee    
 

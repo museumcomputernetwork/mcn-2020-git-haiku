@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-oh voices of the wild ducks    
-Merge conflicts haunt me    
+The river gathering may rains    
+starving for fat fish or mice    
+Over the orchid    
 

@@ -1,4 +1,4 @@
-Seek on high bare trails    
-even the crickets' singing    
-And evening bell    
+In the twilight rain    
+in dusky night    
+Over the orchid    
 

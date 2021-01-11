@@ -1,4 +1,4 @@
-Seas are wild tonight    
-I am off to bed - but ah!    
-Marks only midnight yet    
+Won't you come and see    
+tolling twilight bell; Temple    
+Cold pale eyes pour tears    
 

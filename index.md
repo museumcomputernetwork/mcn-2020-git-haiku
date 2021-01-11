@@ -1,4 +1,4 @@
-This is the new line    
-network is awesome for tea-    
-This autumn evening.    
+A owner of the old thatched hut    
+it needs but shiny wings and look    
+Two white butterflies?    
 

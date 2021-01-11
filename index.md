@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-it needs but shiny wings and look    
-Two white butterflies?    
+Oh, tranquility!    
+even the crickets' singing    
+and gazes at the moon.    
 

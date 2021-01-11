@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-in dusky night    
-but inside, coffee    
+MCN '20    
+scatters in the night; Now see    
+Stabs the darkness    
 

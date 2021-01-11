@@ -1,4 +1,4 @@
-Chirping of the quails    
-visit the ancestral grave    
-Basho lines the moon    
+Bright red pepper-pod    
+An herbal tea, sit, listen    
+And so it must be    
 

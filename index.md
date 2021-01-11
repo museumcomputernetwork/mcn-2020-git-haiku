@@ -1,4 +1,4 @@
-For a lovely bowl    
-just enough to bend the leaves    
-The sun scatters    
+Oh, tranquility!    
+captains swore grand conquest    
+Come to rest our necks    
 

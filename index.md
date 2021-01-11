@@ -1,4 +1,4 @@
-Too curious flower    
-fell in silent dawn, spilling    
-With tears.    
+Seek on high bare trails    
+even the crickets' singing    
+And evening bell    
 

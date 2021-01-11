@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-spare my little buzzing friends    
-Murmuring Mogami    
+Too curious flower    
+fell in silent dawn, spilling    
+With tears.    
 

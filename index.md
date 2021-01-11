@@ -1,4 +1,4 @@
-MCN '20    
-scatters in the night; Now see    
-Stabs the darkness    
+Clouds come from time to time -    
+We can learn so many things,    
+I need a coffee    
 

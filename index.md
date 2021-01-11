@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-An herbal tea, sit, listen    
-And so it must be    
+For a lovely bowl    
+just enough to bend the leaves    
+The sun scatters    
 

@@ -1,4 +1,4 @@
-In the twilight rain    
-in dusky night    
-Over the orchid    
+Too curious flower    
+Penetrating the very rock,    
+These dark hands of life    
 

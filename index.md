@@ -1,4 +1,4 @@
-Under cherry-trees    
-tolling twilight bell; Temple    
-A lovely sunset    
+In the cicada's cry    
+Please don't tell my museum    
+A perfect evening!    
 

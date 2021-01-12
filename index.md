@@ -1,4 +1,4 @@
-The summer grasses.    
-The fragrant blossoms remain.    
-Darting dragon-fly!    
+An old pond    
+fell in silent dawn, spilling    
+from the kiri tree.    
 

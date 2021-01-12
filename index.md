@@ -1,4 +1,4 @@
-In the twilight rain    
-perfumes her wings by floating    
-Thanks for the knowledge    
+This snowy morning    
+Here along this way but I,    
+Our hungry donkey    
 

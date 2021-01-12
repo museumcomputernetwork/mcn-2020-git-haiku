@@ -1,4 +1,4 @@
-Now in sad autumn    
-captains swore grand conquest    
-Bearded, with bent canes    
+Learning something new    
+visit the ancestral grave    
+How soon it must die.    
 

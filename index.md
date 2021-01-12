@@ -1,4 +1,4 @@
-An old pond    
-fell in silent dawn, spilling    
+In the twilight rain    
+dead leaves alone foregather    
 from the kiri tree.    
 

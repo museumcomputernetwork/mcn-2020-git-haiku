@@ -1,4 +1,4 @@
-Must springtime fade?    
-loneliness? Just one leaf    
-It’s the Doll’s Festival.    
+Dewdrop, let me cleanse    
+A small weed    
+Stabs the darkness    
 

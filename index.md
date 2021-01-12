@@ -1,4 +1,4 @@
 White cloud of mist    
-in dusky night    
-Basho lines the moon    
+I am off to bed - but ah!    
+Muffled by hot rocks    
 

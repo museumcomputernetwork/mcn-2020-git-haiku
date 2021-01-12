@@ -1,4 +1,4 @@
-Temple bells die out.    
-Please don't tell my museum    
-cherry-blossoms . . .    
+This is a haiku    
+stretching over Sado Island    
+Stabs the darkness    
 

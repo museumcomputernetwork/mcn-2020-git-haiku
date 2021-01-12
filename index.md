@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Exhausted from video    
-A little woven cape    
+The summer grasses.    
+The fragrant blossoms remain.    
+Darting dragon-fly!    
 

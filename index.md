@@ -1,4 +1,4 @@
-This snowy morning    
-Here along this way but I,    
-Our hungry donkey    
+In the twilight rain    
+watching us pass, met death    
+It’s the Doll’s Festival.    
 

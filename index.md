@@ -1,4 +1,4 @@
-This is a haiku    
-stretching over Sado Island    
-Stabs the darkness    
+Now in sad autumn    
+captains swore grand conquest    
+Bearded, with bent canes    
 

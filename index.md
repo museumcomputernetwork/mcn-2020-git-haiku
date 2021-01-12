@@ -1,4 +1,4 @@
-Oh, tranquility!    
-captains swore grand conquest    
-Come to rest our necks    
+Temple bells die out.    
+here at your flowering grave    
+Goes plop! Watersplash!    
 

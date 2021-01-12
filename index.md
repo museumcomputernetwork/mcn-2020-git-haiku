@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-A small weed    
-Stabs the darkness    
+In the twilight rain    
+perfumes her wings by floating    
+Thanks for the knowledge    
 

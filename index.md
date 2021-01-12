@@ -1,4 +1,4 @@
-White cloud of mist    
-I am off to bed - but ah!    
-Muffled by hot rocks    
+Too curious flower    
+not even a magazine    
+from the kiri tree.    
 

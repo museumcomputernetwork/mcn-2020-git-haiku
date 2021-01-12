@@ -1,4 +1,4 @@
-Seek on high bare trails    
-like ripple on the water    
-Splash!    
+Temple bells die out.    
+Please don't tell my museum    
+cherry-blossoms . . .    
 

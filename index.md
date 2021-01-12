@@ -1,4 +1,4 @@
-Will we meet again    
-Heron's cry    
-Splash!    
+Must springtime fade?    
+loneliness? Just one leaf    
+It’s the Doll’s Festival.    
 

@@ -1,4 +1,4 @@
-In the twilight rain    
-watching us pass, met death    
-It’s the Doll’s Festival.    
+Lightning -    
+as I take my darkening path    
+Companion butterfly!    
 

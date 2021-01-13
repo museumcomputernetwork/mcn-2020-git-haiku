@@ -1,4 +1,4 @@
-Will we meet again    
-the scent of flowers floating    
-From the kiri tree.    
+Dry cheerful cricket    
+let us to the road again    
+CHI turns seventeen    
 

@@ -1,4 +1,4 @@
-See: surviving suns    
+Daylight is here now    
 All that remains    
-Morning-glory gazing    
+Stabs the darkness    
 

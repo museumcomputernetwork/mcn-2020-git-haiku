@@ -1,4 +1,4 @@
-When you say something,    
-it needs but shiny wings and look    
-And so it must be    
+Now in sad autumn    
+I must work and attend MCN    
+A perfect evening!    
 

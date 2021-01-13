@@ -1,4 +1,4 @@
-Won't you come and see    
-A small weed    
-Thanks for the knowledge    
+Nine times arising    
+network is awesome for tea-    
+Mogami River.    
 

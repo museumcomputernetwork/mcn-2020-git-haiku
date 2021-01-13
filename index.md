@@ -1,4 +1,4 @@
-Now in sad autumn    
-I must work and attend MCN    
-A perfect evening!    
+Temple bells die out.    
+The lips feel cold.    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-None is travelling    
-like ripple on the water    
-Of dark loneliness    
+When you say something,    
+it needs but shiny wings and look    
+And so it must be    
 

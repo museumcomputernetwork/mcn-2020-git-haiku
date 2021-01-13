@@ -1,4 +1,4 @@
-Too curious flower    
-not even a magazine    
-from the kiri tree.    
+Dawn-shining mountains    
+Please don't tell my museum    
+With tears.    
 

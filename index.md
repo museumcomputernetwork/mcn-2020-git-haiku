@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Please don't tell my museum    
-With tears.    
+For a lovely bowl    
+adventure awaits outside    
+Stabs the darkness    
 

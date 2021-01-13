@@ -1,4 +1,4 @@
-Temple bells die out.    
-The lips feel cold.    
-Stabs the darkness    
+When you say something,    
+thoughts come - and there is loneliness;    
+My moonlit pillow    
 

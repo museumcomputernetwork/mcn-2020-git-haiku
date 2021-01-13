@@ -1,4 +1,4 @@
-For a lovely bowl    
-adventure awaits outside    
-Stabs the darkness    
+None is travelling    
+like ripple on the water    
+Of dark loneliness    
 

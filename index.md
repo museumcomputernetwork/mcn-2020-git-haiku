@@ -1,4 +1,4 @@
-Poverty's child -    
-Penetrating the very rock,    
-They meet, they mate    
+Now that eyes of hawks    
+captains swore grand conquest    
+I need a coffee    
 

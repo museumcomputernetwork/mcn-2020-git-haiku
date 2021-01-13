@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-it needs but shiny wings and look    
-Morning-glory gazing    
+Will we meet again    
+the scent of flowers floating    
+From the kiri tree.    
 

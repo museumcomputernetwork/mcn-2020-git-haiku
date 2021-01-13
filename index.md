@@ -1,4 +1,4 @@
-Love GitHub a lot    
-loneliness? Just one leaf    
-Murmuring Mogami    
+Poverty's child -    
+Penetrating the very rock,    
+They meet, they mate    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-captains swore grand conquest    
-I need a coffee    
+See: surviving suns    
+All that remains    
+Morning-glory gazing    
 

@@ -1,4 +1,4 @@
-When you say something,    
-thoughts come - and there is loneliness;    
-My moonlit pillow    
+Wake! The sky is light!    
+captains swore grand conquest    
+How soon it must die.    
 

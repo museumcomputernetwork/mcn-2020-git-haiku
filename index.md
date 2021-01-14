@@ -1,4 +1,4 @@
-Under cherry-trees    
-fell in silent dawn, spilling    
-Of warriors’ dreams.    
+In the twilight rain    
+There's no sign that can foretell    
+Mountain-top jewels    
 

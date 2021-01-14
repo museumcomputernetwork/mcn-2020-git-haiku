@@ -1,4 +1,4 @@
-Learning something new    
-The fragrant blossoms remain.    
-My moonlit pillow    
+High up in the trees    
+that black crow I hate so much    
+Morning-glory gazing    
 

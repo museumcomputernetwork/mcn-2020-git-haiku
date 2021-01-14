@@ -1,4 +1,4 @@
-Lady butterfly    
-Is also changed to another    
-Splash!    
+No oil to read by    
+these heavy snow-flakes settling    
+cherry-blossoms . . .    
 

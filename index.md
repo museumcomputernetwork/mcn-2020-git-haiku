@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Not always easy to use    
-A solitary bird    
+The summer grasses.    
+Exhausted from video    
+Moon-lighted mountains!    
 

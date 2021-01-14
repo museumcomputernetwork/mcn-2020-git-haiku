@@ -1,4 +1,4 @@
-The summer grasses.    
-Exhausted from video    
-Moon-lighted mountains!    
+Too curious flower    
+to see the moon, whose solemn pace    
+from looking at the moon.    
 

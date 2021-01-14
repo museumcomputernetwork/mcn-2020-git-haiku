@@ -1,4 +1,4 @@
-snow falling soon now    
-loneliness? Just one leaf    
-A butterfly floats and balances    
+This is a haiku    
+Exhausted from video    
+Thanks for the knowledge    
 

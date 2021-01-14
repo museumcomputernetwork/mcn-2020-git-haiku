@@ -1,4 +1,4 @@
-High up in the trees    
-that black crow I hate so much    
-Morning-glory gazing    
+Under cherry-trees    
+fell in silent dawn, spilling    
+Of warriors’ dreams.    
 

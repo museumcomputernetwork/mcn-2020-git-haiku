@@ -1,4 +1,4 @@
-Too curious flower    
-to see the moon, whose solemn pace    
-from looking at the moon.    
+Lady butterfly    
+thoughts come - and there is loneliness;    
+Like Git and haikus!    
 

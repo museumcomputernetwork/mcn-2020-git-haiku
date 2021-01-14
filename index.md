@@ -1,4 +1,4 @@
-This is a haiku    
-Exhausted from video    
-Thanks for the knowledge    
+None is travelling    
+in your brief sweet waters    
+And evening bell    
 

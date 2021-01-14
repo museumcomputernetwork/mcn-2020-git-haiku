@@ -1,4 +1,4 @@
-This is the new line    
-Penetrating the very rock,    
-Splash!    
+Bright red pepper-pod    
+Not always easy to use    
+A solitary bird    
 

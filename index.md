@@ -1,4 +1,4 @@
-In the cicada's cry    
-A small weed    
-Come to rest our necks    
+Oh, tranquility!    
+Here along this way but I,    
+and gazes at the moon.    
 

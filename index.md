@@ -1,4 +1,4 @@
-Poverty's child -    
-creating git hub hides    
-It’s the Doll’s Festival.    
+snow falling soon now    
+loneliness? Just one leaf    
+A butterfly floats and balances    
 

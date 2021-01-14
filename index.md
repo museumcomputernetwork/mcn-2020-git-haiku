@@ -1,4 +1,4 @@
-Camellia-petal    
-Here along this way but I,    
-how interesting    
+MCN '20    
+fell in silent dawn, spilling    
+With tears.    
 

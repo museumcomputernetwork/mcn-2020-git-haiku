@@ -1,4 +1,4 @@
-Nine times arising    
-network is awesome for tea-    
-Mogami River.    
+Camellia-petal    
+Here along this way but I,    
+how interesting    
 

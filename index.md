@@ -1,4 +1,4 @@
-None is travelling    
-in your brief sweet waters    
-And evening bell    
+Oh, tranquility!    
+loneliness? Just one leaf    
+Bearded, with bent canes    
 

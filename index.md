@@ -1,4 +1,4 @@
-MCN '20    
-fell in silent dawn, spilling    
-With tears.    
+This is the new line    
+Penetrating the very rock,    
+Splash!    
 

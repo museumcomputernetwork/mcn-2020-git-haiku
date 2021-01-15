@@ -1,4 +1,4 @@
-Lightning -    
-starving for fat fish or mice    
-Tall grass their monument    
+Spring is passing.    
+is quieted with creepers    
+A perfect evening!    
 

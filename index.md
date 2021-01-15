@@ -1,4 +1,4 @@
-In the cicada's cry    
-Tiffany Sprague edits books    
-How soon it must die.    
+Lightning -    
+starving for fat fish or mice    
+Tall grass their monument    
 

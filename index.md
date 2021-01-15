@@ -1,4 +1,4 @@
-Ah me! I am one    
-in your brief sweet waters    
-Merge conflicts haunt me    
+This is the new line    
+A frog jumps in -    
+Come to rest our necks    
 

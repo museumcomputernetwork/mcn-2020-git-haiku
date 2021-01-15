@@ -1,4 +1,4 @@
-Cold first winter rain    
-then cry all birds and fishes    
-Marks only midnight yet    
+In the cicada's cry    
+Tiffany Sprague edits books    
+How soon it must die.    
 

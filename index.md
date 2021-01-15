@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-soup, the salad, fish and all    
-from the kiri tree.    
+In the cicada's cry    
+How swift it is    
+Marks only midnight yet    
 

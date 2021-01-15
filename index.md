@@ -1,4 +1,4 @@
-In the cicada's cry    
-as I take my darkening path    
-A cicada’s voice.    
+See: surviving suns    
+April's air stirs in willow-leaves    
+Merge conflicts haunt me    
 

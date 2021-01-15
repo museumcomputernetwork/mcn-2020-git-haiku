@@ -1,4 +1,4 @@
-museum computer    
-he starts to grind the rice,    
-And so it must be    
+An old pond    
+Not always easy to use    
+Two white butterflies?    
 

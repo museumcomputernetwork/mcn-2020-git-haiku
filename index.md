@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-There's no sign that can foretell    
-A little woven cape    
+Silent the old town    
+We can learn so many things,    
+Two white butterflies?    
 

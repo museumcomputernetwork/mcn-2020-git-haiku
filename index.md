@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-Marks only midnight yet    
+Seas are wild tonight    
+like ripple on the water    
+My moonlit pillow    
 

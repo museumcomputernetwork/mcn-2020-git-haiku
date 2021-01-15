@@ -1,4 +1,4 @@
-An old pond    
-Not always easy to use    
-Two white butterflies?    
+If there were fragrance    
+There's no sign that can foretell    
+Of faded daffodils    
 

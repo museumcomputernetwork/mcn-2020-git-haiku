@@ -1,4 +1,4 @@
-If there were fragrance    
-There's no sign that can foretell    
-Of faded daffodils    
+Cold first winter rain    
+then cry all birds and fishes    
+Marks only midnight yet    
 

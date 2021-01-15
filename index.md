@@ -1,4 +1,4 @@
-exciting conference day    
-from cold streamlets for the sea    
-Or backyard love?    
+Now that eyes of hawks    
+soup, the salad, fish and all    
+from the kiri tree.    
 

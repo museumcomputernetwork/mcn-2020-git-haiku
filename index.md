@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-i understand github now    
-to read while you wait    
+museum computer    
+he starts to grind the rice,    
+And so it must be    
 

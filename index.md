@@ -1,4 +1,4 @@
-See: surviving suns    
-April's air stirs in willow-leaves    
-Merge conflicts haunt me    
+exciting conference day    
+from cold streamlets for the sea    
+Or backyard love?    
 

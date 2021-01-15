@@ -1,4 +1,4 @@
-Oh, tranquility!    
-MCN is magical    
-Splash!    
+The first day of the year:    
+fell in silent dawn, spilling    
+to read while you wait    
 

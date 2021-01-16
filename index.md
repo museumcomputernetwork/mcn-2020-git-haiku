@@ -1,4 +1,4 @@
-Too curious flower    
-thoughts come - and there is loneliness;    
-Of warriors’ dreams.    
+For a lovely bowl    
+loneliness? Just one leaf    
+but inside, coffee    
 

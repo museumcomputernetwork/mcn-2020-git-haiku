@@ -1,4 +1,4 @@
-Won't you come and see    
-network is awesome for tea-    
-Mountain-top jewels    
+Indoors wintertime    
+falling, falling, falling now    
+How soon it must die.    
 

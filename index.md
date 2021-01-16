@@ -1,4 +1,4 @@
-MCN '20    
-A frog jumps in -    
-Come to rest our necks    
+Silent the old town    
+and bring to men a chance to rest    
+How soon it must die.    
 

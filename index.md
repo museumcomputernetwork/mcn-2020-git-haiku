@@ -1,4 +1,4 @@
-Indoors wintertime    
-falling, falling, falling now    
-How soon it must die.    
+Nine times arising    
+Twilight whippoorwill, whistle on, sweet deepener    
+how interesting    
 

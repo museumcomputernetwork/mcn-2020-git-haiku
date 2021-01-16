@@ -1,4 +1,4 @@
-Silent the old town    
-Not always easy to use    
-Basho lines the moon    
+Temple bells die out.    
+above white    
+Lilies on the rocks    
 

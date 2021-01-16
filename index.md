@@ -1,4 +1,4 @@
-Temple bells die out.    
-above white    
-Lilies on the rocks    
+None is travelling    
+here at your flowering grave    
+-ching me new tech skills!    
 

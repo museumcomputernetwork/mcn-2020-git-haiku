@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-A frog jumps in -    
-It’s the Doll’s Festival.    
+None is travelling    
+mingling with bright small shells    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Silent the old town    
-and bring to men a chance to rest    
-How soon it must die.    
+Glorious the moon    
+The lips feel cold.    
+but inside, coffee    
 

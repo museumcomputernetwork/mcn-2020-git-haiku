@@ -1,4 +1,4 @@
-Glorious the moon    
-adventure awaits outside    
-Mountain-top jewels    
+Lady butterfly    
+like ripple on the water    
+My moonlit pillow    
 

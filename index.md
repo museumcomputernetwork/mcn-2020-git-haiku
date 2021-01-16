@@ -1,4 +1,4 @@
-High up in the trees    
-Is also changed to another    
-Mogami River.    
+MCN '20    
+A frog jumps in -    
+Come to rest our necks    
 

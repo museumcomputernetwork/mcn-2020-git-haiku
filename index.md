@@ -1,4 +1,4 @@
-Too curious flower    
-adventure awaits outside    
-Two white butterflies?    
+The rains of summer join together.    
+A frog jumps in -    
+I need a coffee    
 

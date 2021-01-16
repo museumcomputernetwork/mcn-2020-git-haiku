@@ -1,4 +1,4 @@
-Lady butterfly    
-like ripple on the water    
-My moonlit pillow    
+Clouds come from time to time -    
+A frog jumps in -    
+It’s the Doll’s Festival.    
 

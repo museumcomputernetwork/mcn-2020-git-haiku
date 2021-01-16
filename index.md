@@ -1,4 +1,4 @@
-Glorious the moon    
-The lips feel cold.    
-but inside, coffee    
+Too curious flower    
+thoughts come - and there is loneliness;    
+Of warriors’ dreams.    
 

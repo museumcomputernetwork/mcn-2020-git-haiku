@@ -1,4 +1,4 @@
-None is travelling    
-mingling with bright small shells    
-Mogami River.    
+Will we meet again    
+not even a magazine    
+Seasoned with petals    
 

@@ -1,4 +1,4 @@
-For a lovely bowl    
-loneliness? Just one leaf    
-but inside, coffee    
+Silent the old town    
+Not always easy to use    
+Basho lines the moon    
 

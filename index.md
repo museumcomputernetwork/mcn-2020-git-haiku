@@ -1,4 +1,4 @@
-Nine times arising    
-Twilight whippoorwill, whistle on, sweet deepener    
-how interesting    
+The summer grasses.    
+fell in silent dawn, spilling    
+And evening bell    
 

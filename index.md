@@ -1,4 +1,4 @@
-Will we meet again    
-not even a magazine    
-Seasoned with petals    
+Swallow in the dusk    
+that black crow I hate so much    
+Two white butterflies?    
 

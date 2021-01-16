@@ -1,4 +1,4 @@
-Silent the old town    
-We can learn so many things,    
-Two white butterflies?    
+High up in the trees    
+Is also changed to another    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Swallow in the dusk    
-that black crow I hate so much    
-Two white butterflies?    
+Ah me! I am one    
+loneliness? Just one leaf    
+Come to rest our necks    
 

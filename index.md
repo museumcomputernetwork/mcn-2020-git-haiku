@@ -1,4 +1,4 @@
-White cloud of mist    
-An herbal tea, sit, listen    
-from looking at the moon.    
+Oh, tranquility!    
+and bring to men a chance to rest    
+And so it must be    
 

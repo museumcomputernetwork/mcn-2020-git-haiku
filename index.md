@@ -1,4 +1,4 @@
-MCN day 5 -    
-stretching over Sado Island    
-My moonlit pillow    
+Won't you come and see    
+above white    
+Over the orchid    
 

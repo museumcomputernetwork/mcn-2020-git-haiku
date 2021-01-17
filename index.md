@@ -1,4 +1,4 @@
-See: surviving suns    
-then cry all birds and fishes    
-Or backyard love?    
+White cloud of mist    
+An herbal tea, sit, listen    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-A small weed    
-A perfect evening!    
+The summer grasses.    
+Exhausted from video    
+A water-jewel    
 

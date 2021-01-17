@@ -1,4 +1,4 @@
-Won't you come and see    
-above white    
-Over the orchid    
+Now that eyes of hawks    
+A small weed    
+A perfect evening!    
 

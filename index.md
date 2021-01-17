@@ -1,4 +1,4 @@
-The rains of summer join together.    
-in your brief sweet waters    
-Basho lines the moon    
+Ah me! I am one    
+Twilight whippoorwill, whistle on, sweet deepener    
+But he's beautiful!    
 

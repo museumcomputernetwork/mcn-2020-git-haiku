@@ -1,4 +1,4 @@
-Oh, tranquility!    
-and bring to men a chance to rest    
-And so it must be    
+MCN day 5 -    
+stretching over Sado Island    
+My moonlit pillow    
 

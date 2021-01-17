@@ -1,4 +1,4 @@
-Imaging skills flow    
-from cold streamlets for the sea    
-are darkened . . .    
+museum computer    
+Here along this way but I,    
+From the kiri tree.    
 

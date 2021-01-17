@@ -1,4 +1,4 @@
-The summer grasses.    
-Exhausted from video    
-A water-jewel    
+This is a haiku    
+these brilliant-hued hibiscus    
+cherry-blossoms . . .    
 

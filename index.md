@@ -1,4 +1,4 @@
-Ah me! I am one    
-Twilight whippoorwill, whistle on, sweet deepener    
+Spring is passing.    
+Line that won't be deleted    
 But he's beautiful!    
 

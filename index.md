@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-dead leaves alone foregather    
-Moon-lighted mountains!    
+No oil to read by    
+mingling with bright small shells    
+how interesting    
 

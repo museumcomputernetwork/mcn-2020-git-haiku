@@ -1,4 +1,4 @@
-Temple bells die out.    
-There's no sign that can foretell    
-A water-jewel    
+Cold first winter rain    
+like ripple on the water    
+Moon-lighted mountains!    
 

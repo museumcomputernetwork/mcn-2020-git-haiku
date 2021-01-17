@@ -1,4 +1,4 @@
-museum computer    
-Here along this way but I,    
-From the kiri tree.    
+See: surviving suns    
+the scent of flowers floating    
+Companion butterfly!    
 

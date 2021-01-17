@@ -1,4 +1,4 @@
-No oil to read by    
-mingling with bright small shells    
-how interesting    
+The rains of summer join together.    
+in your brief sweet waters    
+Basho lines the moon    
 

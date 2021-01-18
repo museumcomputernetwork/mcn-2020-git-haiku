@@ -1,4 +1,4 @@
-In the cicada's cry    
-thoughts come - and there is loneliness;    
-Goes plop! Watersplash!    
+Poverty's child -    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bush-clover petals    
 

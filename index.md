@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-poor monkey, you too could use    
-With tears.    
+Under cherry-trees    
+Here along this way but I,    
+Companion butterfly!    
 

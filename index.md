@@ -1,4 +1,4 @@
-Under cherry-trees    
-Here along this way but I,    
-Companion butterfly!    
+This is a haiku    
+fell in silent dawn, spilling    
+Of faded daffodils    
 

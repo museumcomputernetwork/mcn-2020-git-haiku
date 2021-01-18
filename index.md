@@ -1,4 +1,4 @@
-This is a haiku    
-these brilliant-hued hibiscus    
-cherry-blossoms . . .    
+snow falling soon now    
+Is also changed to another    
+Lilies on the rocks    
 

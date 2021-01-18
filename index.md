@@ -1,4 +1,4 @@
-The summer grasses.    
-the scent of flowers floating    
-My moonlit pillow    
+Temple bells die out.    
+Is also changed to another    
+These dark hands of life    
 

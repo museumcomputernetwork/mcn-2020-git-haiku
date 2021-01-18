@@ -1,4 +1,4 @@
-Ballet in the air    
-The birds cry, and the fishes’ eyes are     
-Among the flowers    
+Cloud of cherry-bloom    
+network is awesome for tea-    
+This autumn evening.    
 

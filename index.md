@@ -1,4 +1,4 @@
-In the twilight rain    
-scatters in the night; Now see    
-Muffled by hot rocks    
+White cloud of mist    
+oh voices of the wild ducks    
+It’s the Doll’s Festival.    
 

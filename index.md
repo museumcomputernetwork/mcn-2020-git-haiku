@@ -1,4 +1,4 @@
-Mountain-rose petals    
-loneliness? Just one leaf    
-Muffled by hot rocks    
+Won't you come and see    
+let us arrange these flowers    
+Mountain-top jewels    
 

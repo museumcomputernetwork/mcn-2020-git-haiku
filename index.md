@@ -1,4 +1,4 @@
-Chirping of the quails    
-There's no sign that can foretell    
-Contemptuous of frost    
+The sea darkening    
+in your brief sweet waters    
+How soon it must die.    
 

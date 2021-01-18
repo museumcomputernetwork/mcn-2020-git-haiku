@@ -1,4 +1,4 @@
-Now in sad autumn    
-he starts to grind the rice,    
-Stabs the darkness    
+In the cicada's cry    
+sky-reflecting violets    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-Won't you come and see    
-let us arrange these flowers    
-Mountain-top jewels    
+Seas are wild tonight    
+he starts to grind the rice,    
+Over the orchid    
 

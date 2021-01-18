@@ -1,4 +1,4 @@
-snow falling soon now    
-Is also changed to another    
-Lilies on the rocks    
+Ballet in the air    
+The birds cry, and the fishes’ eyes are     
+Among the flowers    
 

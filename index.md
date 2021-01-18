@@ -1,4 +1,4 @@
-The sea darkening    
-in your brief sweet waters    
-How soon it must die.    
+Now in sad autumn    
+he starts to grind the rice,    
+Stabs the darkness    
 

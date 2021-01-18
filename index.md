@@ -1,4 +1,4 @@
-If there were fragrance    
-the scent of flowers floating    
-Seasoned with petals    
+Now that eyes of hawks    
+poor monkey, you too could use    
+With tears.    
 

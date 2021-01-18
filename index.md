@@ -1,4 +1,4 @@
-White cloud of mist    
-oh voices of the wild ducks    
-It’s the Doll’s Festival.    
+If there were fragrance    
+the scent of flowers floating    
+Seasoned with petals    
 

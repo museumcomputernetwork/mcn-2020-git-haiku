@@ -1,4 +1,4 @@
-Lightning -    
-thoughts come - and there is loneliness;    
-Splash!    
+Mountain-rose petals    
+loneliness? Just one leaf    
+Muffled by hot rocks    
 

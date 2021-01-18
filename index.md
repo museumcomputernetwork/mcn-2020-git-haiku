@@ -1,4 +1,4 @@
-Seas are wild tonight    
-he starts to grind the rice,    
-Over the orchid    
+In the cicada's cry    
+thoughts come - and there is loneliness;    
+Goes plop! Watersplash!    
 

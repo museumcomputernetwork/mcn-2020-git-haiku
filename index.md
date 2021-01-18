@@ -1,4 +1,4 @@
-Poverty's child -    
-Twilight whippoorwill, whistle on, sweet deepener    
-Bush-clover petals    
+Chirping of the quails    
+There's no sign that can foretell    
+Contemptuous of frost    
 

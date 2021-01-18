@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-network is awesome for tea-    
-This autumn evening.    
+In the twilight rain    
+scatters in the night; Now see    
+Muffled by hot rocks    
 

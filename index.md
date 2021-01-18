@@ -1,4 +1,4 @@
-This is a haiku    
-fell in silent dawn, spilling    
-Of faded daffodils    
+The summer grasses.    
+the scent of flowers floating    
+My moonlit pillow    
 

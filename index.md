@@ -1,4 +1,4 @@
-This snowy morning    
-Is also changed to another    
-Come to rest our necks    
+The first day of the year:    
+April's air stirs in willow-leaves    
+A water-jewel    
 

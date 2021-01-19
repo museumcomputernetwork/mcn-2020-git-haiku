@@ -1,4 +1,4 @@
-Daylight is here now    
-above white    
-A butterfly floats and balances    
+The rains of summer join together.    
+falling, falling, falling now    
+Among the flowers    
 

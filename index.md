@@ -1,4 +1,4 @@
-Now that eyes of hawks    
+The summer grasses.    
 he starts to grind the rice,    
-Ueno? Asakura?    
+How soon it must die.    
 

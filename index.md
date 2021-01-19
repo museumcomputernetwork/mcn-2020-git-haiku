@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
-from looking at the moon.    
+The rains of summer join together.    
+even the crickets' singing    
+A butterfly floats and balances    
 

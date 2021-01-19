@@ -1,4 +1,4 @@
-The rains of summer join together.    
-falling, falling, falling now    
-Among the flowers    
+First white snow of fall    
+Penetrating the very rock,    
+and gazes at the moon.    
 

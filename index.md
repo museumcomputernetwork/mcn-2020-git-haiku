@@ -1,4 +1,4 @@
-In the cicada's cry    
-sky-reflecting violets    
-How soon it must die.    
+Now that eyes of hawks    
+he starts to grind the rice,    
+Ueno? Asakura?    
 

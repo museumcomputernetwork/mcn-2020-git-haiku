@@ -1,4 +1,4 @@
-This is the new line    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+-ching me new tech skills!    
 

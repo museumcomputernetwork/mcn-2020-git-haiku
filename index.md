@@ -1,4 +1,4 @@
-The summer grasses.    
-he starts to grind the rice,    
-How soon it must die.    
+This snowy morning    
+Is also changed to another    
+Come to rest our necks    
 

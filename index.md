@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-network is awesome for tea-    
+Dewdrop, let me cleanse    
+Heron's cry    
 from looking at the moon.    
 

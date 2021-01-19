@@ -1,4 +1,4 @@
-Glorious the moon    
-The birds cry, and the fishes’ eyes are     
-Of dark loneliness    
+Such utter silence!    
+Here along this way but I,    
+Stabs the darkness    
 

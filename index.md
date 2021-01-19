@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
+Such utter silence!    
+from cold streamlets for the sea    
 -ching me new tech skills!    
 

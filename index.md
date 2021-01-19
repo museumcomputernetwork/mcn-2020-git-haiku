@@ -1,4 +1,4 @@
-Carven gods long gone    
-The birds cry, and the fishes’ eyes are     
-Among the flowers    
+Dewdrop, let me cleanse    
+that black crow I hate so much    
+Bush-clover petals    
 

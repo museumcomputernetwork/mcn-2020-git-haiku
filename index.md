@@ -1,4 +1,4 @@
-First white snow of fall    
-Penetrating the very rock,    
-and gazes at the moon.    
+This is the new line    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 

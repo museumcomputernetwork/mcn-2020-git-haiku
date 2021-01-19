@@ -1,4 +1,4 @@
-Such utter silence!    
-from cold streamlets for the sea    
--ching me new tech skills!    
+Camellia-petal    
+April's air stirs in willow-leaves    
+Like Git and haikus!    
 

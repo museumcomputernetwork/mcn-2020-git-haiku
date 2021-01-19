@@ -1,4 +1,4 @@
-The first day of the year:    
-April's air stirs in willow-leaves    
-A water-jewel    
+Glorious the moon    
+The birds cry, and the fishes’ eyes are     
+Of dark loneliness    
 

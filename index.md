@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-Murmuring Mogami    
+Now that eyes of hawks    
+network is awesome for tea-    
+from looking at the moon.    
 

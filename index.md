@@ -1,4 +1,4 @@
-Camellia-petal    
-April's air stirs in willow-leaves    
-Like Git and haikus!    
+Carven gods long gone    
+The birds cry, and the fishes’ eyes are     
+Among the flowers    
 

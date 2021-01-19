@@ -1,4 +1,4 @@
-The rains of summer join together.    
-even the crickets' singing    
-A butterfly floats and balances    
+Learning something new    
+falling, falling, falling now    
+Mogami River.    
 

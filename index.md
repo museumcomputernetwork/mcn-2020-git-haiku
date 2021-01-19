@@ -1,4 +1,4 @@
-Such utter silence!    
-Here along this way but I,    
-Stabs the darkness    
+Daylight is here now    
+above white    
+A butterfly floats and balances    
 

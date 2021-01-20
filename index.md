@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Twilight whippoorwill, whistle on, sweet deepener    
-are darkened    
+Won't you come and see    
+The fragrant blossoms remain.    
+A perfect evening!    
 

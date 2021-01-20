@@ -1,4 +1,4 @@
-High up in the trees    
-dead leaves alone foregather    
-Muffled by hot rocks    
+The first day of the year:    
+How swift it is    
+I need a coffee    
 

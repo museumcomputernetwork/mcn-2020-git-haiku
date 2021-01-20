@@ -1,4 +1,4 @@
-Seas are wild tonight    
-just enough to bend the leaves    
-Basho lines the moon    
+For a lovely bowl    
+above white    
+Darting dragon-fly!    
 

@@ -1,4 +1,4 @@
 Clouds come from time to time -    
-tolling twilight bell; Temple    
-Mogami River.    
+The fragrant blossoms remain.    
+Morning-glory gazing    
 

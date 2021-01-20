@@ -1,4 +1,4 @@
-Temple bells die out.    
-that black crow I hate so much    
-Come to rest our necks    
+High up in the trees    
+dead leaves alone foregather    
+Muffled by hot rocks    
 

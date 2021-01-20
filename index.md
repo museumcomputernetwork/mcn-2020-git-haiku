@@ -1,4 +1,4 @@
-Lady butterfly    
-The birds cry, and the fishes’ eyes are     
-Bush-clover petals    
+The river gathering may rains    
+The fragrant blossoms remain.    
+These dark hands of life    
 

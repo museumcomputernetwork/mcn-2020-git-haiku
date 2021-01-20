@@ -1,4 +1,4 @@
-See: surviving suns    
-stretching over Sado Island    
-Enjoying the house    
+Ballet in the air    
+The birds cry, and the fishes’ eyes are     
+Lilies on the rocks    
 

@@ -1,4 +1,4 @@
-The river gathering may rains    
-The fragrant blossoms remain.    
-These dark hands of life    
+I am at the MCN    
+An herbal tea, sit, listen    
+A little woven cape    
 

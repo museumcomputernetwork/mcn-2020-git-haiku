@@ -1,4 +1,4 @@
-Learning something new    
-falling, falling, falling now    
-Mogami River.    
+Spring is passing.    
+watching us pass, met death    
+Companion butterfly!    
 

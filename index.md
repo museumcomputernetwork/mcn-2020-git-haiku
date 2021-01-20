@@ -1,4 +1,4 @@
-I am at the MCN    
-An herbal tea, sit, listen    
-A little woven cape    
+Seas are wild tonight    
+just enough to bend the leaves    
+Basho lines the moon    
 

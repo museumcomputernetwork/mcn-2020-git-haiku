@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-Mogami River.    
+Oh, tranquility!    
+in dusky night    
+Morning-glory gazing    
 

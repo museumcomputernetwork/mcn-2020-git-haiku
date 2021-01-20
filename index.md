@@ -1,4 +1,4 @@
-Poverty's child -    
-not even a magazine    
-Moon-lighted mountains!    
+In the cicada's cry    
+these brilliant-hued hibiscus    
+Of warriors’ dreams.    
 

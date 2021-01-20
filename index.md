@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-A perfect evening!    
+See: surviving suns    
+stretching over Sado Island    
+Enjoying the house    
 

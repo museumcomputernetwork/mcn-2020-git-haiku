@@ -1,4 +1,4 @@
-Oh, tranquility!    
-in dusky night    
-Morning-glory gazing    
+Clouds come from time to time -    
+tolling twilight bell; Temple    
+Mogami River.    
 

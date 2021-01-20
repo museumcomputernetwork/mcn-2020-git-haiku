@@ -1,4 +1,4 @@
-MCN day 5 -    
-Penetrating the very rock,    
-Splash!    
+The summer grasses.    
+chirping, keeps the autumn gay    
+Mogami River.    
 

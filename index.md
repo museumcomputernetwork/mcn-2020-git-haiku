@@ -1,4 +1,4 @@
-An old pond    
-stretching over Sado Island    
-About this ignite    
+Cloud of cherry-bloom    
+We can learn so many things,    
+Darting dragon-fly!    
 

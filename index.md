@@ -1,4 +1,4 @@
-First white snow of fall    
-Heron's cry    
-This autumn evening.    
+Imaging skills flow    
+fell in silent dawn, spilling    
+Mogami River.    
 

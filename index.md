@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-he starts to grind the rice,    
-Mogami River.    
+Here, where a thousand    
+Penetrating the very rock,    
+Of warriors’ dreams.    
 

@@ -1,4 +1,4 @@
-Under cherry-trees    
-these brilliant-hued hibiscus    
-Murmuring Mogami    
+Now the swinging bridge    
+in your brief sweet waters    
+A perfect evening!    
 

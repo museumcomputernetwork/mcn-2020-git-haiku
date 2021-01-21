@@ -1,4 +1,4 @@
-I am at the MCN    
-tolling twilight bell; Temple    
-from the kiri tree.    
+snow falling soon now    
+here at your flowering grave    
+Stabs the darkness    
 

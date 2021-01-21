@@ -1,4 +1,4 @@
-museum computer    
+A owner of the old thatched hut    
 and bring to men a chance to rest    
-Merge conflicts haunt me    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Imaging skills flow    
-even the crickets' singing    
-With tears.    
+Temple bells die out.    
+the scent of flowers floating    
+A lovely sunset    
 

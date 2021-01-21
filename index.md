@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us arrange these flowers    
-My moonlit pillow    
+Poverty's child -    
+Penetrating the very rock,    
+Splash!    
 

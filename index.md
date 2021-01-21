@@ -1,4 +1,4 @@
-Black cloudbank broken    
-let us arrange these flowers    
-Silent clouds of stars    
+Lightning -    
+The fragrant blossoms remain.    
+This autumn evening.    
 

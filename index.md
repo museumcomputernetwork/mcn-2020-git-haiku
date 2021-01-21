@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-We can learn so many things,    
-Darting dragon-fly!    
+Now that eyes of hawks    
+then cry all birds and fishes    
+Splash!    
 

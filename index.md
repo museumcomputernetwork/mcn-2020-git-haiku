@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-then cry all birds and fishes    
-Splash!    
+First white snow of fall    
+Heron's cry    
+This autumn evening.    
 

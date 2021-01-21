@@ -1,4 +1,4 @@
-Temple bells die out.    
-the scent of flowers floating    
-A lovely sunset    
+Clouds come from time to time -    
+let us arrange these flowers    
+My moonlit pillow    
 

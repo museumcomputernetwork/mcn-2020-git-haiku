@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-Morning-glory gazing    
+museum computer    
+and bring to men a chance to rest    
+Merge conflicts haunt me    
 

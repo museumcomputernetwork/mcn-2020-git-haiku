@@ -1,4 +1,4 @@
-Now the swinging bridge    
-in your brief sweet waters    
-A perfect evening!    
+Imaging skills flow    
+even the crickets' singing    
+With tears.    
 

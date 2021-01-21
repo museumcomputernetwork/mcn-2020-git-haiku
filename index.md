@@ -1,4 +1,4 @@
-Here, where a thousand    
-Penetrating the very rock,    
-Of warriors’ dreams.    
+Black cloudbank broken    
+let us arrange these flowers    
+Silent clouds of stars    
 

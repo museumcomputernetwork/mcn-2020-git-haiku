@@ -1,4 +1,4 @@
-Lightning -    
-The fragrant blossoms remain.    
-This autumn evening.    
+I am at the MCN    
+tolling twilight bell; Temple    
+from the kiri tree.    
 

@@ -1,4 +1,4 @@
-snow falling soon now    
-here at your flowering grave    
-Stabs the darkness    
+Under cherry-trees    
+these brilliant-hued hibiscus    
+Murmuring Mogami    
 

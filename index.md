@@ -1,4 +1,4 @@
-Poverty's child -    
-Penetrating the very rock,    
-Splash!    
+An old pond    
+stretching over Sado Island    
+About this ignite    
 

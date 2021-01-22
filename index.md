@@ -1,4 +1,4 @@
-Now the swinging bridge    
-he starts to grind the rice,    
-Thanks for the knowledge    
+No oil to read by    
+oh voices of the wild ducks    
+These dark hands of life    
 

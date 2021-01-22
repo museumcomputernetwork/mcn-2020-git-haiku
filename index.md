@@ -1,4 +1,4 @@
-Now the swinging bridge    
-in your brief sweet waters    
-Over the orchid    
+Seek on high bare trails    
+to see the moon, whose solemn pace    
+but inside, coffee    
 

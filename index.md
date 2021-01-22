@@ -1,4 +1,4 @@
-Seek on high bare trails    
-to see the moon, whose solemn pace    
-but inside, coffee    
+Now that eyes of hawks    
+let us to the road again    
+Moon-lighted mountains!    
 

@@ -1,4 +1,4 @@
-Now the swinging bridge    
-let us arrange these flowers    
-Of dark loneliness    
+Ah me! I am one    
+mingling with bright small shells    
+the autumn dusk is here.    
 

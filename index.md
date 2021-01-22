@@ -1,4 +1,4 @@
-Under cherry-trees    
-even the crickets' singing    
-Crying, whirling, white    
+Spring is passing.    
+Tiffany Sprague edits books    
+Basho lines the moon    
 

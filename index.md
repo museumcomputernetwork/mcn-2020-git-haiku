@@ -1,4 +1,4 @@
-Mountain-rose petals    
-All that remains    
-Of dark loneliness    
+Lightning -    
+as I take my darkening path    
+Moon-lighted mountains!    
 

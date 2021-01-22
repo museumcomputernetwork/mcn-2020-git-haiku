@@ -1,4 +1,4 @@
-Camellia-petal    
-All that remains    
-Morning-glory gazing    
+Poverty's child -    
+that black crow I hate so much    
+Waterfall music    
 

@@ -1,4 +1,4 @@
-Lightning -    
-as I take my darkening path    
-Moon-lighted mountains!    
+Poverty's child -    
+The birds cry, and the fishes’ eyes are     
+Can she edit this?    
 

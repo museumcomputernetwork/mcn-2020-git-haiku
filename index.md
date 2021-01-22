@@ -1,4 +1,4 @@
-No oil to read by    
-oh voices of the wild ducks    
-These dark hands of life    
+The sea darkening    
+We can learn so many things,    
+It’s the Doll’s Festival.    
 

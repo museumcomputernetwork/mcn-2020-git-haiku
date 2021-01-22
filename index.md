@@ -1,4 +1,4 @@
-Imaging skills flow    
-fell in silent dawn, spilling    
-Mogami River.    
+Must springtime fade?    
+falling, falling, falling now    
+Thanks for the knowledge    
 

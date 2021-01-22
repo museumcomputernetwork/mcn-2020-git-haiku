@@ -1,4 +1,4 @@
-Poverty's child -    
-that black crow I hate so much    
-Waterfall music    
+museum computer    
+falling, falling, falling now    
+The sun scatters    
 

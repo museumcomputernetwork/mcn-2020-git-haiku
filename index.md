@@ -1,4 +1,4 @@
-Must springtime fade?    
-from cold streamlets for the sea    
-from the kiri tree.    
+Under cherry-trees    
+even the crickets' singing    
+Crying, whirling, white    
 

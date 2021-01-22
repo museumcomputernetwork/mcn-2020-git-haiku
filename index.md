@@ -1,4 +1,4 @@
-Won't you come and see    
-and bring to men a chance to rest    
-From the kiri tree.    
+snow falling soon now    
+How swift it is    
+On the temple porch    
 

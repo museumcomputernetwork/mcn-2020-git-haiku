@@ -1,4 +1,4 @@
-Spring is passing.    
-Tiffany Sprague edits books    
-Basho lines the moon    
+In the cicada's cry    
+chirping, keeps the autumn gay    
+This autumn evening.    
 

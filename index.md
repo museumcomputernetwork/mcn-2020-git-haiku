@@ -1,4 +1,4 @@
-When you say something,    
-here at your flowering grave    
-Of faded daffodils    
+In the cicada's cry    
+then cry all birds and fishes    
+Like our tendrilled life    
 

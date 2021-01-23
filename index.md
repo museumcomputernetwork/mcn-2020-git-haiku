@@ -1,4 +1,4 @@
-Carven gods long gone    
-Line that won't be deleted    
-Ueno? Asakura?    
+None is travelling    
+tolling twilight bell; Temple    
+Can she edit this?    
 

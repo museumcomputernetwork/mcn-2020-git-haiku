@@ -1,4 +1,4 @@
-None is travelling    
-tolling twilight bell; Temple    
-Can she edit this?    
+Spring is passing.    
+above white    
+Like our tendrilled life    
 

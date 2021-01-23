@@ -1,4 +1,4 @@
-Camellia-petal    
-from cold streamlets for the sea    
-Bearded, with bent canes    
+Chirping of the quails    
+adventure awaits outside    
+Thanks for the knowledge    
 

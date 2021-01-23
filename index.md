@@ -1,4 +1,4 @@
-Chirping of the quails    
-adventure awaits outside    
-Thanks for the knowledge    
+Silent the old town    
+falling, falling, falling now    
+About this ignite    
 

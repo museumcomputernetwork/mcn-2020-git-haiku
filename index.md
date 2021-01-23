@@ -1,4 +1,4 @@
-First white snow of fall    
-I am off to bed - but ah!    
-from the kiri tree.    
+Indoors wintertime    
+There's no sign that can foretell    
+CHI turns seventeen    
 

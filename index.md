@@ -1,4 +1,4 @@
-MCN '20    
-falling, falling, falling now    
-Since there is no rice    
+Temple bells die out.    
+he starts to grind the rice,    
+Darting dragon-fly!    
 

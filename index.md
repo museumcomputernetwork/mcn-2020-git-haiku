@@ -1,4 +1,4 @@
-Now in sad autumn    
-Here along this way but I,    
-They meet, they mate    
+Temple bells die out.    
+tolling twilight bell; Temple    
+This autumn evening.    
 

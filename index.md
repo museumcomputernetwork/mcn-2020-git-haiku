@@ -1,4 +1,4 @@
-Such utter silence!    
-Tiffany Sprague edits books    
-Murmuring Mogami    
+Camellia-petal    
+from cold streamlets for the sea    
+Bearded, with bent canes    
 

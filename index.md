@@ -1,4 +1,4 @@
-Imaging skills flow    
-I am off to bed - but ah!    
-And evening bell    
+snow falling soon now    
+even the crickets' singing    
+How soon it must die.    
 

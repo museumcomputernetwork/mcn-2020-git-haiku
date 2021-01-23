@@ -1,4 +1,4 @@
-museum computer    
-falling, falling, falling now    
-The sun scatters    
+Carven gods long gone    
+Line that won't be deleted    
+Ueno? Asakura?    
 

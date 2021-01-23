@@ -1,4 +1,4 @@
-Silent the old town    
-falling, falling, falling now    
-About this ignite    
+Clouds come from time to time -    
+network is awesome for tea-    
+Of dark loneliness    
 

@@ -1,4 +1,4 @@
-First white snow of fall    
-The fragrant blossoms remain.    
-With tears.    
+Seas are wild tonight    
+as I take my darkening path    
+Crying, whirling, white    
 

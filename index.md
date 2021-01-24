@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-in dusky night    
-Mogami River.    
+museum computer    
+who spends his little breakfast    
+Goes plop! Watersplash!    
 

@@ -1,4 +1,4 @@
-Temple bells die out.    
-Penetrating the very rock,    
-Splash!    
+Now the swinging bridge    
+A frog jumps in -    
+A little woven cape    
 

@@ -1,4 +1,4 @@
-museum computer    
-then cry all birds and fishes    
-Mountain-top jewels    
+Lightning -    
+let us to the road again    
+to read while you wait    
 

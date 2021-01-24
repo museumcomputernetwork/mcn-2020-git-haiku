@@ -1,4 +1,4 @@
-This snowy morning    
-in dusky night    
-Cherry-blossoms    
+In the twilight rain    
+Heron's cry    
+Goes plop! Watersplash!    
 

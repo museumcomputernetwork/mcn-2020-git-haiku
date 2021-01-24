@@ -1,4 +1,4 @@
-museum computer    
-who spends his little breakfast    
-Goes plop! Watersplash!    
+This snowy morning    
+in dusky night    
+Cherry-blossoms    
 

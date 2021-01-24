@@ -1,4 +1,4 @@
-Now the swinging bridge    
-A frog jumps in -    
-A little woven cape    
+Temple bells die out.    
+dead leaves alone foregather    
+CHI turns seventeen    
 

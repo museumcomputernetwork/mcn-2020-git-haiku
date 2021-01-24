@@ -1,4 +1,4 @@
-Temple bells die out.    
-Twilight whippoorwill, whistle on, sweet deepener    
-Mountain-top jewels    
+The first day of the year:    
+The fragrant blossoms remain.    
+This autumn evening.    
 

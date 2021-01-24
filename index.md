@@ -1,4 +1,4 @@
-The first day of the year:    
-adventure awaits outside    
-The autumn dusk is here.    
+The rains of summer join together.    
+Please don't tell my museum    
+A water-jewel    
 

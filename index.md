@@ -1,4 +1,4 @@
-In the twilight rain    
-Heron's cry    
-Goes plop! Watersplash!    
+museum computer    
+then cry all birds and fishes    
+Mountain-top jewels    
 

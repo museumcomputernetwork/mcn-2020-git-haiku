@@ -1,4 +1,4 @@
-Lightning -    
-let us to the road again    
-to read while you wait    
+Cloud of cherry-bloom    
+dead leaves alone foregather    
+Cold pale eyes pour tears    
 

@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Line that won't be deleted    
-Over the orchid    
+Temple bells die out.    
+Penetrating the very rock,    
+Splash!    
 

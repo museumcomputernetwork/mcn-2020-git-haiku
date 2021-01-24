@@ -1,4 +1,4 @@
-snow falling soon now    
-even the crickets' singing    
-How soon it must die.    
+Dewdrop, let me cleanse    
+Line that won't be deleted    
+Over the orchid    
 

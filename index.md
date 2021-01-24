@@ -1,4 +1,4 @@
-Camellia-petal    
-is quieted with creepers    
-the autumn dusk is here.    
+Cloud of cherry-bloom    
+above white    
+Darting dragon-fly!    
 

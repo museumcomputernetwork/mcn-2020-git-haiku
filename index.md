@@ -1,4 +1,4 @@
-Under cherry-trees    
-let us arrange these flowers    
-Mogami River.    
+First white snow of fall    
+The fragrant blossoms remain.    
+With tears.    
 

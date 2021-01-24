@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-above white    
-Darting dragon-fly!    
+Under cherry-trees    
+let us arrange these flowers    
+Mogami River.    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-as I take my darkening path    
-Crying, whirling, white    
+The first day of the year:    
+adventure awaits outside    
+The autumn dusk is here.    
 

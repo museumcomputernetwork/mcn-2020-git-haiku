@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-dead leaves alone foregather    
-Cold pale eyes pour tears    
+Glorious the moon    
+let us to the road again    
+Of warriors’ dreams.    
 

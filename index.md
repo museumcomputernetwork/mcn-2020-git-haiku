@@ -1,4 +1,4 @@
-Temple bells die out.    
-dead leaves alone foregather    
-CHI turns seventeen    
+Camellia-petal    
+is quieted with creepers    
+the autumn dusk is here.    
 

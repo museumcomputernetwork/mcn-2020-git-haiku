@@ -1,4 +1,4 @@
-The first day of the year:    
-The fragrant blossoms remain.    
-This autumn evening.    
+exciting conference day    
+How swift it is    
+A butterfly floats and balances    
 

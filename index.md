@@ -1,4 +1,4 @@
-In the sea-surf edge    
-loneliness? Just one leaf    
-Thanks for the knowledge    
+Old dark sleepy pool    
+like ripple on the water    
+This autumn evening.    
 

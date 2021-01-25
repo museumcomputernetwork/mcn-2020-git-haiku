@@ -1,4 +1,4 @@
-MCN '20    
-The birds cry, and the fishes’ eyes are     
-Crying, whirling, white    
+Glorious the moon    
+that black crow I hate so much    
+The Autumn wind.    
 

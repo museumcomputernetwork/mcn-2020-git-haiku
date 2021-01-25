@@ -1,4 +1,4 @@
-Black cloudbank broken    
-it needs but shiny wings and look    
-Merge conflicts haunt me    
+Chirping of the quails    
+A frog jumps in -    
+Among the flowers    
 

@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Among the flowers    
+Ah me! I am one    
+tolling twilight bell; Temple    
+A lovely sunset    
 

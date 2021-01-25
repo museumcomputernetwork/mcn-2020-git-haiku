@@ -1,4 +1,4 @@
-Ah me! I am one    
-tolling twilight bell; Temple    
-A lovely sunset    
+In the sea-surf edge    
+loneliness? Just one leaf    
+Thanks for the knowledge    
 

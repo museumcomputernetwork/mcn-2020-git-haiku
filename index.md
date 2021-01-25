@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-Among the flowers    
+exciting conference day    
+loneliness? Just one leaf    
+Of warriors’ dreams.    
 

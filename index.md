@@ -1,4 +1,4 @@
-Camellia-petal    
-even the crickets' singing    
-I need a coffee    
+None is travelling    
+and bring to men a chance to rest    
+They meet, they mate    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-therefore our thanks dark clouds    
-Crying, whirling, white    
+Nine times arising    
+I am off to bed - but ah!    
+A cicada’s voice.    
 

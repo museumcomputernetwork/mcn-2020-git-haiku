@@ -1,4 +1,4 @@
-Glorious the moon    
-that black crow I hate so much    
-The Autumn wind.    
+hello and how are we    
+scatters in the night; Now see    
+These dark hands of life    
 

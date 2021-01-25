@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-just enough to bend the leaves    
-A lovely sunset    
+Black cloudbank broken    
+it needs but shiny wings and look    
+Merge conflicts haunt me    
 

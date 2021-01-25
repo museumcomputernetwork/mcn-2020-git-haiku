@@ -1,4 +1,4 @@
-An old pond    
-Line that won't be deleted    
+High up in the trees    
+April's air stirs in willow-leaves    
 and gazes at the moon.    
 

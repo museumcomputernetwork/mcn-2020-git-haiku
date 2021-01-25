@@ -1,4 +1,4 @@
-Nine times arising    
-I am off to bed - but ah!    
-A cicada’s voice.    
+MCN '20    
+The birds cry, and the fishes’ eyes are     
+Crying, whirling, white    
 

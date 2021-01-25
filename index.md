@@ -1,4 +1,4 @@
-None is travelling    
-and bring to men a chance to rest    
-They meet, they mate    
+Dawn-shining mountains    
+just enough to bend the leaves    
+A lovely sunset    
 

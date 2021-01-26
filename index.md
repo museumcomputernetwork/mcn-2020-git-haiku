@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-poor monkey, you too could use    
-Cherry-blossoms    
+An old pond    
+let us arrange these flowers    
+Silent clouds of stars    
 

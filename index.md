@@ -1,4 +1,4 @@
-Seek on high bare trails    
-and bring to men a chance to rest    
-Bush-clover petals    
+MCN day 5 -    
+above white    
+Waterfall music    
 

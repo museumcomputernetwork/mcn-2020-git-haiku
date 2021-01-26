@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-It’s the Doll’s Festival.    
+Why so scrawny, cat?    
+poor monkey, you too could use    
+Cherry-blossoms    
 

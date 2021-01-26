@@ -1,4 +1,4 @@
-An old pond    
-let us arrange these flowers    
-Silent clouds of stars    
+See: surviving suns    
+A frog jumps in -    
+from looking at the moon.    
 

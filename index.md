@@ -1,4 +1,4 @@
-Lightning -    
-Twilight whippoorwill, whistle on, sweet deepener    
-Splash!    
+Daylight is here now    
+The fragrant blossoms remain.    
+but inside, coffee    
 

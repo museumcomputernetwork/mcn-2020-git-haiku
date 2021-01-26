@@ -1,4 +1,4 @@
 The first day of the year:    
-How swift it is    
-Basho lines the moon    
+and bring to men a chance to rest    
+It’s the Doll’s Festival.    
 

@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-How soon it must die.    
+Spring is passing.    
+oh voices of the wild ducks    
+Goes plop! Watersplash!    
 

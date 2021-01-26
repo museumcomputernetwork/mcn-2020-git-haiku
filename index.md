@@ -1,4 +1,4 @@
-See: surviving suns    
-A frog jumps in -    
-from looking at the moon.    
+Oh, tranquility!    
+I must work and attend MCN    
+With tears.    
 

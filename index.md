@@ -1,4 +1,4 @@
-This is a haiku    
-he starts to grind the rice,    
-The autumn dusk is here.    
+Cold first winter rain    
+A frog jumps in -    
+Over the orchid    
 

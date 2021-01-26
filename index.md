@@ -1,4 +1,4 @@
-The sea darkening    
-All that remains    
-Muffled by hot rocks    
+This is a haiku    
+he starts to grind the rice,    
+The autumn dusk is here.    
 

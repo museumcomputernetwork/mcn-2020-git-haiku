@@ -1,4 +1,4 @@
-Daylight is here now    
-The fragrant blossoms remain.    
-but inside, coffee    
+Poverty's child -    
+A frog jumps in -    
+How soon it must die.    
 

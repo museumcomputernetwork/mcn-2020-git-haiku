@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-perfumes her wings by floating    
-Two white butterflies?    
+Lightning -    
+Twilight whippoorwill, whistle on, sweet deepener    
+Splash!    
 

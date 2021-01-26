@@ -1,4 +1,4 @@
-Love GitHub a lot    
-starving for fat fish or mice    
-Two white butterflies?    
+The sea darkening    
+All that remains    
+Muffled by hot rocks    
 

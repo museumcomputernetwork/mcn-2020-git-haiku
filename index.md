@@ -1,4 +1,4 @@
-Oh, tranquility!    
-I must work and attend MCN    
-With tears.    
+Cold first winter rain    
+in dusky night    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-exciting conference day    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+Lightning -    
+is quieted with creepers    
+Among the flowers    
 

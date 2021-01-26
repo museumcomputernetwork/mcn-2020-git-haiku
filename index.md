@@ -1,4 +1,4 @@
-Nine times arising    
-Is also changed to another    
+Dawn-shining mountains    
+perfumes her wings by floating    
 Two white butterflies?    
 

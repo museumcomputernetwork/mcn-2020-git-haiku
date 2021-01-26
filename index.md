@@ -1,4 +1,4 @@
-Spring is passing.    
-oh voices of the wild ducks    
-Goes plop! Watersplash!    
+Black cloudbank broken    
+here at your flowering grave    
+Cold pale eyes pour tears    
 

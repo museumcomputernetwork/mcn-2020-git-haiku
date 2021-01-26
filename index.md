@@ -1,4 +1,4 @@
-Black cloudbank broken    
-here at your flowering grave    
-Cold pale eyes pour tears    
+Spring is passing.    
+chirping, keeps the autumn gay    
+and gazes at the moon.    
 

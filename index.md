@@ -1,4 +1,4 @@
-The sea darkening    
-in dusky night    
-A perfect evening!    
+Silent the old town    
+There's no sign that can foretell    
+Mogami River.    
 

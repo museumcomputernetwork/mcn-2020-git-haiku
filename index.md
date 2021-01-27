@@ -1,4 +1,4 @@
-The rains of summer join together.    
-in dusky night    
-Goes plop! Watersplash!    
+museum computer    
+A frog jumps in -    
+Cherry-blossoms    
 

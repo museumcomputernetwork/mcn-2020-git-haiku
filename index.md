@@ -1,4 +1,4 @@
-Learning something new    
-and bring to men a chance to rest    
-Splash!    
+Seek on high bare trails    
+An herbal tea, sit, listen    
+Murmuring Mogami    
 

@@ -1,4 +1,4 @@
-Carven gods long gone    
-and bring to men a chance to rest    
-Muffled by hot rocks    
+Black cloudbank broken    
+Tiffany Sprague edits books    
+Cold pale eyes pour tears    
 

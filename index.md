@@ -1,4 +1,4 @@
-Such utter silence!    
-fell in silent dawn, spilling    
-Murmuring Mogami    
+Learning something new    
+and bring to men a chance to rest    
+Splash!    
 

@@ -1,4 +1,4 @@
-museum computer    
-A frog jumps in -    
-Cherry-blossoms    
+Lightning -    
+Penetrating the very rock,    
+Mogami River.    
 

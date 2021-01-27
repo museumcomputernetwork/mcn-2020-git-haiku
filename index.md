@@ -1,4 +1,4 @@
-This is a haiku    
-Please don't tell my museum    
-A water-jewel    
+The rains of summer join together.    
+in dusky night    
+Goes plop! Watersplash!    
 

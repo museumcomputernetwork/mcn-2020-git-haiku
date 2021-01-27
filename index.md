@@ -1,4 +1,4 @@
-Seek on high bare trails    
-An herbal tea, sit, listen    
-Murmuring Mogami    
+This is a haiku    
+Please don't tell my museum    
+A water-jewel    
 

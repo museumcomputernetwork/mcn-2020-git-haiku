@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Tiffany Sprague edits books    
-Cold pale eyes pour tears    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Carven gods long gone    
-April's air stirs in willow-leaves    
-Can she edit this?    
+A owner of the old thatched hut    
+Heron's cry    
+are darkened    
 

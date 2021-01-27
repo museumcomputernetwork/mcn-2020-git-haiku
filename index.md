@@ -1,4 +1,4 @@
 A owner of the old thatched hut    
-Heron's cry    
-are darkened    
+he starts to grind the rice,    
+A cicada’s voice.    
 

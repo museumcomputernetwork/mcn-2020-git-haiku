@@ -1,4 +1,4 @@
-Lightning -    
+Swallow in the dusk    
 Penetrating the very rock,    
-Mogami River.    
+Muffled by hot rocks    
 

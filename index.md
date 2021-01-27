@@ -1,4 +1,4 @@
-Carven gods long gone    
-like ripple on the water    
-A perfect evening!    
+MCN day 5 -    
+Tiffany Sprague edits books    
+A water-jewel    
 

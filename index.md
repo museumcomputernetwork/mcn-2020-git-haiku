@@ -1,4 +1,4 @@
-Oh, tranquility!    
-thoughts come - and there is loneliness;    
-email confirmation demands met    
+The sea darkening    
+in dusky night    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-Silent the old town    
-that black crow I hate so much    
-This autumn evening.    
+exciting conference day    
+is quieted with creepers    
+Like Git and haikus!    
 

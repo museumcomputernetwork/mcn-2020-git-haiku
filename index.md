@@ -1,4 +1,4 @@
-Oh, tranquility!    
-All that remains    
-are darkened . . .    
+Mountain-rose petals    
+captains swore grand conquest    
+Since there is no rice    
 

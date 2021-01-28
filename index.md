@@ -1,4 +1,4 @@
-In the cicada's cry    
-and bring to men a chance to rest    
-This autumn evening.    
+Spring is passing.    
+to see the moon, whose solemn pace    
+cherry-blossoms . . .    
 

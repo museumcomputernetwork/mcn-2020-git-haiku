@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-who spends his little breakfast    
-Muffled by hot rocks    
+Clouds come from time to time -    
+There's no sign that can foretell    
+A butterfly floats and balances    
 

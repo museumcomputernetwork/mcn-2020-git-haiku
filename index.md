@@ -1,4 +1,4 @@
-Silent the old town    
-There's no sign that can foretell    
-Mogami River.    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+how interesting    
 

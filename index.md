@@ -1,4 +1,4 @@
-exciting conference day    
-How swift it is    
-But he's beautiful!    
+Oh, tranquility!    
+All that remains    
+are darkened . . .    
 

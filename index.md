@@ -1,4 +1,4 @@
-Must springtime fade?    
-just enough to bend the leaves    
-Basho lines the moon    
+museum computer    
+Tiffany Sprague edits books    
+And evening bell    
 

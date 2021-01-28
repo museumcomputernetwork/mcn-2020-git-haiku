@@ -1,4 +1,4 @@
-Spring is passing.    
-to see the moon, whose solemn pace    
-cherry-blossoms . . .    
+The summer grasses.    
+then cry all birds and fishes    
+Bush-clover petals    
 

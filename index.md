@@ -1,4 +1,4 @@
-In the twilight rain    
-Heron's cry    
-A perfect evening!    
+Poverty's child -    
+I must work and attend MCN    
+how interesting    
 

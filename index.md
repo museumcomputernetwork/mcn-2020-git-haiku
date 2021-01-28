@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-how interesting    
+In the twilight rain    
+Heron's cry    
+A perfect evening!    
 

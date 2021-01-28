@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Please don't tell my museum    
-It’s the Doll’s Festival.    
+Must springtime fade?    
+just enough to bend the leaves    
+Basho lines the moon    
 

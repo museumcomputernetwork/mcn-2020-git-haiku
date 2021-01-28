@@ -1,4 +1,4 @@
-exciting conference day    
-is quieted with creepers    
-Like Git and haikus!    
+See: surviving suns    
+above white    
+Like our tendrilled life    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-then cry all birds and fishes    
-Bush-clover petals    
+In the sea-surf edge    
+poor monkey, you too could use    
+Ueno? Asakura?    
 

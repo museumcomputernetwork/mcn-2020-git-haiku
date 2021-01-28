@@ -1,4 +1,4 @@
-Poverty's child -    
-I must work and attend MCN    
-how interesting    
+exciting conference day    
+How swift it is    
+But he's beautiful!    
 

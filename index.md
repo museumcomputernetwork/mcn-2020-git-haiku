@@ -1,4 +1,4 @@
-Mountain-rose petals    
-captains swore grand conquest    
-Since there is no rice    
+Why so scrawny, cat?    
+Please don't tell my museum    
+It’s the Doll’s Festival.    
 

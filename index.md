@@ -1,4 +1,4 @@
-Temple bells die out.    
-these brilliant-hued hibiscus    
-Mogami River.    
+Mountain-rose petals    
+captains swore grand conquest    
+Bush-clover petals    
 

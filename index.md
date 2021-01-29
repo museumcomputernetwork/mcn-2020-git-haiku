@@ -1,4 +1,4 @@
-Cold first winter rain    
-these brilliant-hued hibiscus    
-Splash!    
+This is the new line    
+Here along this way but I,    
+The sun scatters    
 

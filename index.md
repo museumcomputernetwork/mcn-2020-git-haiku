@@ -1,4 +1,4 @@
-Chirping of the quails    
-like ripple on the water    
-Can she edit this?    
+Cold first winter rain    
+these brilliant-hued hibiscus    
+Splash!    
 

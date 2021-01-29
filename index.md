@@ -1,4 +1,4 @@
-In the cicada's cry    
-scatters in the night; Now see    
-A little woven cape    
+Now the swinging bridge    
+even the crickets' singing    
+Two white butterflies?    
 

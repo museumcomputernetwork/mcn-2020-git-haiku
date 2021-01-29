@@ -1,4 +1,4 @@
-Must springtime fade?    
-Twilight whippoorwill, whistle on, sweet deepener    
-Bush-clover petals    
+In the cicada's cry    
+scatters in the night; Now see    
+A little woven cape    
 

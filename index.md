@@ -1,4 +1,4 @@
-Mountain-rose petals    
-captains swore grand conquest    
-Bush-clover petals    
+Dewdrop, let me cleanse    
+it needs but shiny wings and look    
+This autumn evening.    
 

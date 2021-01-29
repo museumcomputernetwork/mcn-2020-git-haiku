@@ -1,4 +1,4 @@
-Here, where a thousand    
-How swift it is    
-About this ignite    
+None is travelling    
+A frog jumps in -    
+Moon-lighted mountains!    
 

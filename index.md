@@ -1,4 +1,4 @@
-This is the new line    
-Here along this way but I,    
-The sun scatters    
+Cold first winter rain    
+Is also changed to another    
+Splash!    
 

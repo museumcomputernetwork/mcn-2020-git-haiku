@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-it needs but shiny wings and look    
-This autumn evening.    
+The first day of the year:    
+Heron's cry    
+Bush-clover petals    
 

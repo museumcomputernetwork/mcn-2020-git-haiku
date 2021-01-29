@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-Moon-lighted mountains!    
+Temple bells die out.    
+these brilliant-hued hibiscus    
+Mogami River.    
 

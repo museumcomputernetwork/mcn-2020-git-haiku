@@ -1,4 +1,4 @@
-Now the swinging bridge    
-even the crickets' singing    
-Two white butterflies?    
+None is travelling    
+Is also changed to another    
+Merge conflicts haunt me    
 

@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-and bring to men a chance to rest    
-Darting dragon-fly!    
+Won't you come and see    
+MCN is magical    
+Ueno? Asakura?    
 

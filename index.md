@@ -1,4 +1,4 @@
-Black cloudbank broken    
-and bring to men a chance to rest    
-Basho lines the moon    
+Must springtime fade?    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bush-clover petals    
 

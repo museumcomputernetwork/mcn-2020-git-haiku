@@ -1,4 +1,4 @@
-Won't you come and see    
-We can learn so many things,    
-Our hungry donkey    
+See: surviving suns    
+it needs but shiny wings and look    
+This autumn evening.    
 

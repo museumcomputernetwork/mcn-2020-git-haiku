@@ -1,4 +1,4 @@
-Cold first winter rain    
-Is also changed to another    
-Splash!    
+White cloud of mist    
+and bring to men a chance to rest    
+Bearded, with bent canes    
 

@@ -1,4 +1,4 @@
-See: surviving suns    
-it needs but shiny wings and look    
-This autumn evening.    
+Black cloudbank broken    
+and bring to men a chance to rest    
+Basho lines the moon    
 

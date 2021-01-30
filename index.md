@@ -1,4 +1,4 @@
-Ah me! I am one    
-he starts to grind the rice,    
-Of warriors’ dreams.    
+This snowy morning    
+as I take my darkening path    
+Waterfall music    
 

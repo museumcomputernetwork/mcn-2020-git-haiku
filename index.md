@@ -1,4 +1,4 @@
-Won't you come and see    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+Daylight is here now    
+starving for fat fish or mice    
+Contemptuous of frost    
 

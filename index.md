@@ -1,4 +1,4 @@
-Such utter silence!    
-twin butterflies until, twice white    
-Morning-glory gazing    
+Ah me! I am one    
+he starts to grind the rice,    
+Of warriors’ dreams.    
 

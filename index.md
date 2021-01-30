@@ -1,4 +1,4 @@
-Glorious the moon    
-Penetrating the very rock,    
-Lilies on the rocks    
+Such utter silence!    
+twin butterflies until, twice white    
+Morning-glory gazing    
 

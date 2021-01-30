@@ -1,4 +1,4 @@
-When you say something,    
-The fragrant blossoms remain.    
-A solitary bird    
+Dewdrop, let me cleanse    
+How swift it is    
+Morning-glory gazing    
 

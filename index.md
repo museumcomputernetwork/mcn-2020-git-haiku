@@ -1,4 +1,4 @@
-Chirping of the quails    
-The fragrant blossoms remain.    
-Waterfall music    
+Glorious the moon    
+Penetrating the very rock,    
+Lilies on the rocks    
 

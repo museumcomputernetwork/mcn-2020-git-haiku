@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-in dusky night    
-This autumn evening.    
+Chirping of the quails    
+The fragrant blossoms remain.    
+Waterfall music    
 

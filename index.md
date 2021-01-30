@@ -1,4 +1,4 @@
-Temple bells die out.    
-All that remains    
-And evening bell    
+Dawn-shining mountains    
+Heron's cry    
+are darkened . . .    
 

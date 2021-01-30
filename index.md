@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-How swift it is    
-Morning-glory gazing    
+This is a haiku    
+The lips feel cold.    
+This autumn evening.    
 

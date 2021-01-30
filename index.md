@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Heron's cry    
-are darkened . . .    
+MCN day 5 -    
+like ripple on the water    
+A perfect evening!    
 

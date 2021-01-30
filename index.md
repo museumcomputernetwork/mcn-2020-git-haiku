@@ -1,4 +1,4 @@
-This is a haiku    
-The lips feel cold.    
-This autumn evening.    
+Won't you come and see    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 

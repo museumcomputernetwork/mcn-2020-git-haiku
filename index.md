@@ -1,4 +1,4 @@
-This snowy morning    
-as I take my darkening path    
-Waterfall music    
+When you say something,    
+The fragrant blossoms remain.    
+A solitary bird    
 

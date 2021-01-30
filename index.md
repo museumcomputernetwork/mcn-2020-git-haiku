@@ -1,4 +1,4 @@
-Daylight is here now    
-starving for fat fish or mice    
-Contemptuous of frost    
+If there were fragrance    
+is quieted with creepers    
+and gazes at the moon.    
 

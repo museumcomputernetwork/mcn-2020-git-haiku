@@ -1,4 +1,4 @@
-Now the swinging bridge    
-quick unexpected frog    
-Merge conflicts haunt me    
+Temple bells die out.    
+All that remains    
+And evening bell    
 

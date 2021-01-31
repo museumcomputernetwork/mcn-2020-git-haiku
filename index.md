@@ -1,4 +1,4 @@
-Lightning -    
-scatters in the night; Now see    
-Tall grass their monument    
+The sea darkening    
+as I take my darkening path    
+Or backyard love?    
 

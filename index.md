@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-MCN is magical    
-Come to rest our necks    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+Of warriors’ dreams.    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
-The autumn dusk is here.    
+Clouds come from time to time -    
+MCN is magical    
+Come to rest our necks    
 

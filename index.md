@@ -1,4 +1,4 @@
-The sea darkening    
-as I take my darkening path    
-Or backyard love?    
+In the twilight rain    
+Line that won't be deleted    
+CHI turns seventeen    
 

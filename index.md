@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Here along this way but I,    
+hello and how are we    
+A frog jumps in -    
 Our hungry donkey    
 

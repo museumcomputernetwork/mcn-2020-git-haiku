@@ -1,4 +1,4 @@
-In the twilight rain    
-Line that won't be deleted    
-CHI turns seventeen    
+The summer grasses.    
+network is awesome for tea-    
+Lilies on the rocks    
 

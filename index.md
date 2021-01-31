@@ -1,4 +1,4 @@
-hello and how are we    
-A frog jumps in -    
-Our hungry donkey    
+The first day of the year:    
+in dusky night    
+and gazes at the moon.    
 

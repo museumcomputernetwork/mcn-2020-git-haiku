@@ -1,4 +1,4 @@
-Lightning -    
+Wake! The sky is light!    
 Here along this way but I,    
-cherry-blossoms . . .    
+Our hungry donkey    
 

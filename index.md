@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-and gazes at the moon.    
+If there were fragrance    
+Line that won't be deleted    
+but inside, coffee    
 

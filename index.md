@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-Of warriors’ dreams.    
+Too curious flower    
+The birds cry, and the fishes’ eyes are     
+Splash!    
 

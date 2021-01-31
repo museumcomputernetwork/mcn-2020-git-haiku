@@ -1,4 +1,4 @@
-Too curious flower    
-The birds cry, and the fishes’ eyes are     
-Splash!    
+Why so scrawny, cat?    
+April's air stirs in willow-leaves    
+Crying, whirling, white    
 

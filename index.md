@@ -1,4 +1,4 @@
-The summer grasses.    
-network is awesome for tea-    
-Lilies on the rocks    
+The rains of summer join together.    
+Is also changed to another    
+The autumn dusk is here.    
 

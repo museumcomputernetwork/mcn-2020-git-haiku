@@ -1,4 +1,4 @@
-Carven gods long gone    
-in dusky night    
-This autumn evening.    
+In the cicada's cry    
+scatters in the night; Now see    
+A cicada’s voice.    
 

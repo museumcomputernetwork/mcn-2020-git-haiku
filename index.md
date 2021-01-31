@@ -1,4 +1,4 @@
-If there were fragrance    
-Line that won't be deleted    
-but inside, coffee    
+Such utter silence!    
+starving for fat fish or mice    
+Our hungry donkey    
 

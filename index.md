@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-is quieted with creepers    
-Splash!    
+Carven gods long gone    
+in dusky night    
+This autumn evening.    
 

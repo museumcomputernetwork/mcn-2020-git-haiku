@@ -1,4 +1,4 @@
-In the cicada's cry    
+Lightning -    
 scatters in the night; Now see    
-A cicada’s voice.    
+Tall grass their monument    
 

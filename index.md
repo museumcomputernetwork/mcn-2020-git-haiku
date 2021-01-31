@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-the scent of flowers floating    
-Crying, whirling, white    
+Lightning -    
+Here along this way but I,    
+cherry-blossoms . . .    
 

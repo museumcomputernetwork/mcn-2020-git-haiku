@@ -1,4 +1,4 @@
-Temple bells die out.    
-Heron's cry    
-from looking at the moon.    
+MCN day 5 -    
+is quieted with creepers    
+are darkened . . .    
 

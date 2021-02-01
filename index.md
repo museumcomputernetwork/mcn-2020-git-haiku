@@ -1,4 +1,4 @@
-Here, where a thousand    
+Poverty's child -    
 An herbal tea, sit, listen    
-Can she edit this?    
+They meet, they mate    
 

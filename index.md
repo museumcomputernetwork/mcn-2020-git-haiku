@@ -1,4 +1,4 @@
-I am at the MCN    
-A frog jumps in -    
-They meet, they mate    
+Chirping of the quails    
+these heavy snow-flakes settling    
+With tears.    
 

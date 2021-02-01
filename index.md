@@ -1,4 +1,4 @@
-Chirping of the quails    
-these heavy snow-flakes settling    
-With tears.    
+Why so scrawny, cat?    
+Is also changed to another    
+And so it must be    
 

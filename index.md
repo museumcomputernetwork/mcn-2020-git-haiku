@@ -1,4 +1,4 @@
-The summer grasses.    
-i understand github now    
-Marks only midnight yet    
+Mountain-rose petals    
+let us to the road again    
+from looking at the moon.    
 

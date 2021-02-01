@@ -1,4 +1,4 @@
-Temple bells die out.    
-quick unexpected frog    
-How soon it must die.    
+Now that eyes of hawks    
+MCN is magical    
+A butterfly floats and balances    
 

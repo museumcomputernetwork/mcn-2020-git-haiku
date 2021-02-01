@@ -1,4 +1,4 @@
-No oil to read by    
-Is also changed to another    
-It’s the Doll’s Festival.    
+Old dark sleepy pool    
+he starts to grind the rice,    
+Of faded daffodils    
 

@@ -1,4 +1,4 @@
-High up in the trees    
-even the crickets' singing    
-and gazes at the moon.    
+Will we meet again    
+starving for fat fish or mice    
+Since there is no rice    
 

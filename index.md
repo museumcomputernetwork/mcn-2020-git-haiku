@@ -1,4 +1,4 @@
-I am at the MCN    
-Heron's cry    
-Of faded daffodils    
+Here, where a thousand    
+An herbal tea, sit, listen    
+Can she edit this?    
 

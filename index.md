@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-MCN is magical    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+sky-reflecting violets    
+Contemptuous of frost    
 

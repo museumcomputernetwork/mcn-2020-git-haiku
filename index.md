@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The birds cry, and the fishes’ eyes are     
-Two white butterflies?    
+The rains of summer join together.    
+let us arrange these flowers    
+Cherry-blossoms    
 

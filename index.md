@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-Of warriors’ dreams.    
+Temple bells die out.    
+quick unexpected frog    
+How soon it must die.    
 

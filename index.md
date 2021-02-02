@@ -1,4 +1,4 @@
-The first day of the year:    
-here at your flowering grave    
-Ueno? Asakura?    
+snow falling soon now    
+How swift it is    
+A perfect evening!    
 

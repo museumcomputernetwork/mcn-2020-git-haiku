@@ -1,4 +1,4 @@
-Will we meet again    
-starving for fat fish or mice    
-Since there is no rice    
+Seek on high bare trails    
+in dusky night    
+A perfect evening!    
 

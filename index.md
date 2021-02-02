@@ -1,4 +1,4 @@
-museum computer    
-April's air stirs in willow-leaves    
-Waterfall music    
+Oh, tranquility!    
+oh voices of the wild ducks    
+Among the flowers    
 

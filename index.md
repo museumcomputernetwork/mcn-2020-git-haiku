@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-spare my little buzzing friends    
-Two white butterflies?    
+Oh, tranquility!    
+here at your flowering grave    
+Of warriors’ dreams.    
 

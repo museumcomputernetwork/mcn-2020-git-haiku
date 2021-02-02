@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-quick unexpected frog    
-Of faded daffodils    
+Ah me! I am one    
+chirping, keeps the autumn gay    
+It’s the Doll’s Festival.    
 

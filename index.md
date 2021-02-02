@@ -1,4 +1,4 @@
-Ah me! I am one    
-chirping, keeps the autumn gay    
-It’s the Doll’s Festival.    
+The first day of the year:    
+here at your flowering grave    
+Ueno? Asakura?    
 

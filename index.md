@@ -1,4 +1,4 @@
-snow falling soon now    
-How swift it is    
-A perfect evening!    
+Too curious flower    
+from cold streamlets for the sea    
+Like Git and haikus!    
 

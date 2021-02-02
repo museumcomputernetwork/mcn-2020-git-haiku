@@ -1,4 +1,4 @@
-None is travelling    
-Exhausted from video    
-On the temple porch    
+If there were fragrance    
+Heron's cry    
+Tall grass their monument    
 

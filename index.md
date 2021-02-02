@@ -1,4 +1,4 @@
-An old pond    
-captains swore grand conquest    
-They meet, they mate    
+museum computer    
+April's air stirs in willow-leaves    
+Waterfall music    
 

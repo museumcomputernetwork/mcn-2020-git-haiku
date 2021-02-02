@@ -1,4 +1,4 @@
-White cloud of mist    
-stretching over Sado Island    
-Splash!    
+Must springtime fade?    
+A frog jumps in -    
+But he's beautiful!    
 

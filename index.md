@@ -1,4 +1,4 @@
-Seek on high bare trails    
-in dusky night    
-A perfect evening!    
+Bright red pepper-pod    
+Heron's cry    
+Goes plop! Watersplash!    
 

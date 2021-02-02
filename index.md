@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Please don't tell my museum    
-and gazes at the moon.    
+Now the swinging bridge    
+it needs but shiny wings and look    
+Of warriors’ dreams.    
 

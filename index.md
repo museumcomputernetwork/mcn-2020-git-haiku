@@ -1,4 +1,4 @@
-Oh, tranquility!    
-oh voices of the wild ducks    
-Among the flowers    
+An old pond    
+these brilliant-hued hibiscus    
+I need a coffee    
 

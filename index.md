@@ -1,4 +1,4 @@
-Must springtime fade?    
-A frog jumps in -    
-But he's beautiful!    
+Dawn-shining mountains    
+Please don't tell my museum    
+and gazes at the moon.    
 

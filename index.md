@@ -1,4 +1,4 @@
-White cloud of mist    
-soup, the salad, fish and all    
-Stabs the darkness    
+Why so scrawny, cat?    
+quick unexpected frog    
+Like our tendrilled life    
 

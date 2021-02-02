@@ -1,4 +1,4 @@
-Oh, tranquility!    
-here at your flowering grave    
-Of warriors’ dreams.    
+An old pond    
+captains swore grand conquest    
+They meet, they mate    
 

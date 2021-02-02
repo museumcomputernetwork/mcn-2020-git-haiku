@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-quick unexpected frog    
-Like our tendrilled life    
+None is travelling    
+Exhausted from video    
+On the temple porch    
 

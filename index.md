@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Heron's cry    
-Goes plop! Watersplash!    
+A owner of the old thatched hut    
+spare my little buzzing friends    
+Two white butterflies?    
 

@@ -1,4 +1,4 @@
-An old pond    
-these brilliant-hued hibiscus    
-I need a coffee    
+White cloud of mist    
+soup, the salad, fish and all    
+Stabs the darkness    
 

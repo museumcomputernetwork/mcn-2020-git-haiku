@@ -1,4 +1,4 @@
-Black cloudbank broken    
-in your brief sweet waters    
-How soon it must die.    
+Now in sad autumn    
+Is also changed to another    
+are darkened . . .    
 

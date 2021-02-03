@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-just enough to bend the leaves    
-Bush-clover petals    
+Too curious flower    
+even the crickets' singing    
+and gazes at the moon.    
 

@@ -1,4 +1,4 @@
-Too curious flower    
-even the crickets' singing    
-and gazes at the moon.    
+The first day of the year:    
+How swift it is    
+cherry-blossoms . . .    
 

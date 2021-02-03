@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-I must work and attend MCN    
-are darkened . . .    
+None is travelling    
+watching us pass, met death    
+CHI turns seventeen    
 

@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-Ueno? Asakura?    
+High up in the trees    
+thoughts come - and there is loneliness;    
+Merge conflicts haunt me    
 

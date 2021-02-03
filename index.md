@@ -1,4 +1,4 @@
-the zoom waiting room    
-loneliness? Just one leaf    
-Silent clouds of stars    
+Dewdrop, let me cleanse    
+I must work and attend MCN    
+are darkened . . .    
 

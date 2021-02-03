@@ -1,4 +1,4 @@
-None is travelling    
-watching us pass, met death    
-CHI turns seventeen    
+Chirping of the quails    
+he starts to grind the rice,    
+A cicada’s voice.    
 

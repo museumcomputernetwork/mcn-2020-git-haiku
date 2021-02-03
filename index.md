@@ -1,4 +1,4 @@
-Chirping of the quails    
-How swift it is    
-Seasoned with petals    
+Cloud of cherry-bloom    
+just enough to bend the leaves    
+Bush-clover petals    
 

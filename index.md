@@ -1,4 +1,4 @@
-This snowy morning    
-falling, falling, falling now    
-Seasoned with petals    
+In the cicada's cry    
+starving for fat fish or mice    
+Ueno? Asakura?    
 

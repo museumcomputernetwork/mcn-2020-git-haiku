@@ -1,4 +1,4 @@
-The summer grasses.    
-the scent of flowers floating    
-Cherry-blossoms    
+the zoom waiting room    
+loneliness? Just one leaf    
+Silent clouds of stars    
 

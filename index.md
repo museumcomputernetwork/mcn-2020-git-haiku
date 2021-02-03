@@ -1,4 +1,4 @@
-Won't you come and see    
-All that remains    
-This autumn evening.    
+Lightning -    
+Line that won't be deleted    
+from looking at the moon.    
 

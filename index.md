@@ -1,4 +1,4 @@
-Now the swinging bridge    
-it needs but shiny wings and look    
-Of warriors’ dreams.    
+Clouds come from time to time -    
+Please don't tell my museum    
+The autumn dusk is here.    
 

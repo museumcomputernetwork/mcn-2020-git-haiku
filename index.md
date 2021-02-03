@@ -1,4 +1,4 @@
-MCN '20    
-he starts to grind the rice,    
-Seasoned with petals    
+An old pond    
+in dusky night    
+It’s the Doll’s Festival.    
 

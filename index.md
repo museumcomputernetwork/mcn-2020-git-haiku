@@ -1,4 +1,4 @@
-High up in the trees    
+Daylight is here now    
 thoughts come - and there is loneliness;    
-Merge conflicts haunt me    
+Muffled by hot rocks    
 

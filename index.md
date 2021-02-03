@@ -1,4 +1,4 @@
-Lightning -    
-Line that won't be deleted    
-from looking at the moon.    
+No oil to read by    
+he starts to grind the rice,    
+-ching me new tech skills!    
 

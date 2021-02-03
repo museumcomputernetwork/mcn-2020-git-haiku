@@ -1,4 +1,4 @@
-snow falling soon now    
-loneliness? Just one leaf    
-Marks only midnight yet    
+The summer grasses.    
+the scent of flowers floating    
+Cherry-blossoms    
 

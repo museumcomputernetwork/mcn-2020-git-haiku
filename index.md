@@ -1,4 +1,4 @@
-Chirping of the quails    
-he starts to grind the rice,    
-A cicada’s voice.    
+In the sea-surf edge    
+poor monkey, you too could use    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-In the cicada's cry    
-The birds cry, and the fishes’ eyes are     
-Thanks for the knowledge    
+MCN '20    
+he starts to grind the rice,    
+Seasoned with petals    
 

@@ -1,4 +1,4 @@
-In the sea-surf edge    
-poor monkey, you too could use    
-How soon it must die.    
+In the cicada's cry    
+The birds cry, and the fishes’ eyes are     
+Thanks for the knowledge    
 

@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-An herbal tea, sit, listen    
-Splash!    
+Now in sad autumn    
+A frog jumps in -    
+Contemptuous of frost    
 

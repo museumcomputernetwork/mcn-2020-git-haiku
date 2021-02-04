@@ -1,4 +1,4 @@
-Now in sad autumn    
-above white    
-It’s the Doll’s Festival.    
+Now that eyes of hawks    
+I am off to bed - but ah!    
+How soon it must die.    
 

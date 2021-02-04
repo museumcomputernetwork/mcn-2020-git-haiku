@@ -1,4 +1,4 @@
-Daylight is here now    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+High up in the trees    
+network is awesome for tea-    
+I need a coffee    
 

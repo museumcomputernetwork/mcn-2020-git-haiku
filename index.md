@@ -1,4 +1,4 @@
-Too curious flower    
-Not always easy to use    
-From the kiri tree.    
+Black cloudbank broken    
+Heron's cry    
+Tall grass their monument    
 

@@ -1,4 +1,4 @@
-Now in sad autumn    
-A frog jumps in -    
-Contemptuous of frost    
+Indoors wintertime    
+here at your flowering grave    
+A cicada’s voice.    
 

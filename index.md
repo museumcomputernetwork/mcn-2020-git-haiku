@@ -1,4 +1,4 @@
-Chirping of the quails    
-The lips feel cold.    
-Muffled by hot rocks    
+Learning something new    
+A frog jumps in -    
+Cold pale eyes pour tears    
 

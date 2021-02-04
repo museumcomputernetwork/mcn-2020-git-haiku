@@ -1,4 +1,4 @@
-Lightning -    
-stretching over Sado Island    
-from looking at the moon.    
+Now in sad autumn    
+above white    
+It’s the Doll’s Festival.    
 

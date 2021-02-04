@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-I am off to bed - but ah!    
-How soon it must die.    
+Too curious flower    
+Not always easy to use    
+From the kiri tree.    
 

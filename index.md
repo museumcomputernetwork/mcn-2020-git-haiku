@@ -1,4 +1,4 @@
-Carven gods long gone    
-from cold streamlets for the sea    
-With tears.    
+Black cloudbank broken    
+who spends his little breakfast    
+but inside, coffee    
 

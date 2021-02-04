@@ -1,4 +1,4 @@
-Black cloudbank broken    
-who spends his little breakfast    
-but inside, coffee    
+The summer grasses.    
+Penetrating the very rock,    
+Bush-clover petals    
 

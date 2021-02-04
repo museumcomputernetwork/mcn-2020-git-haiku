@@ -1,4 +1,4 @@
-High up in the trees    
-network is awesome for tea-    
-I need a coffee    
+Chirping of the quails    
+The lips feel cold.    
+Muffled by hot rocks    
 

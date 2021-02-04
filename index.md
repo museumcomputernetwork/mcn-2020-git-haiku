@@ -1,4 +1,4 @@
-Learning something new    
-A frog jumps in -    
-Cold pale eyes pour tears    
+Cloud of cherry-bloom    
+from cold streamlets for the sea    
+from the kiri tree.    
 

@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-from cold streamlets for the sea    
-from the kiri tree.    
+An old pond    
+in your brief sweet waters    
+A butterfly floats and balances    
 

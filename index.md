@@ -1,4 +1,4 @@
-The summer grasses.    
-Penetrating the very rock,    
-Bush-clover petals    
+Old dark sleepy pool    
+An herbal tea, sit, listen    
+Splash!    
 

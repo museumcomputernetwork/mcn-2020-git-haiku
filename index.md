@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-Stabs the darkness    
+Clouds come from time to time -    
+from cold streamlets for the sea    
+I need a coffee    
 

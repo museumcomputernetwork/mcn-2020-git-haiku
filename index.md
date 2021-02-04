@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Exhausted from video    
-how interesting    
+Seas are wild tonight    
+Here along this way but I,    
+Seasoned with petals    
 

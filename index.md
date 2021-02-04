@@ -1,4 +1,4 @@
-Seas are wild tonight    
-adventure awaits outside    
-A little woven cape    
+Lightning -    
+stretching over Sado Island    
+from looking at the moon.    
 

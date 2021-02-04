@@ -1,4 +1,4 @@
-Indoors wintertime    
-here at your flowering grave    
-A cicada’s voice.    
+Now that eyes of hawks    
+Exhausted from video    
+how interesting    
 

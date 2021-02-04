@@ -1,4 +1,4 @@
-An old pond    
-in your brief sweet waters    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+Here along this way but I,    
+Of dark loneliness    
 

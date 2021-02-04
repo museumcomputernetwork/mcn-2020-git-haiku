@@ -1,4 +1,4 @@
-exciting conference day    
-The lips feel cold.    
-These dark hands of life    
+Seas are wild tonight    
+adventure awaits outside    
+A little woven cape    
 

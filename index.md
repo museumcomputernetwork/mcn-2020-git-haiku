@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-from cold streamlets for the sea    
-I need a coffee    
+exciting conference day    
+The lips feel cold.    
+These dark hands of life    
 

@@ -1,4 +1,4 @@
-Seek on high bare trails    
-network is awesome for tea-    
-CHI turns seventeen    
+Learning something new    
+falling, falling, falling now    
+Of warriors’ dreams.    
 

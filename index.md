@@ -1,4 +1,4 @@
-Ballet in the air    
-The fragrant blossoms remain.    
-to read while you wait    
+Will we meet again    
+just enough to bend the leaves    
+the autumn dusk is here.    
 

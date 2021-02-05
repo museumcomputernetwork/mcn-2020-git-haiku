@@ -1,4 +1,4 @@
-exciting conference day    
-All that remains    
-Thanks for the knowledge    
+Dry cheerful cricket    
+The lips feel cold.    
+are darkened    
 

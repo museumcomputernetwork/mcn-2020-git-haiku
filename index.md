@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Here along this way but I,    
-Seasoned with petals    
+Must springtime fade?    
+MCN is magical    
+Come to rest our necks    
 

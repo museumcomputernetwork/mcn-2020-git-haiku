@@ -1,4 +1,4 @@
-Love GitHub a lot    
-he starts to grind the rice,    
-Goes plop! Watersplash!    
+Camellia-petal    
+from cold streamlets for the sea    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-Glorious the moon    
-MCN is magical    
-Crying, whirling, white    
+Ah me! I am one    
+chirping, keeps the autumn gay    
+Lilies on the rocks    
 

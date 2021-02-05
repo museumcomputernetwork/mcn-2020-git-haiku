@@ -1,4 +1,4 @@
-Poverty's child -    
-Twilight whippoorwill, whistle on, sweet deepener    
-Silent clouds of stars    
+museum computer    
+watching us pass, met death    
+This autumn evening.    
 

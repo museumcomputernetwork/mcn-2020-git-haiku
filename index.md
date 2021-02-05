@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-in dusky night    
--ching me new tech skills!    
+Glorious the moon    
+MCN is magical    
+Crying, whirling, white    
 

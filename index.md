@@ -1,4 +1,4 @@
-See: surviving suns    
-loneliness? Just one leaf    
-Silent clouds of stars    
+Spring is passing.    
+above white    
+And so it must be    
 

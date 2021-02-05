@@ -1,4 +1,4 @@
-Must springtime fade?    
-MCN is magical    
-Come to rest our necks    
+Oh, tranquility!    
+stretching over Sado Island    
+email confirmation demands met    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-stretching over Sado Island    
-email confirmation demands met    
+Clouds come from time to time -    
+scatters in the night; Now see    
+Stabs the darkness    
 

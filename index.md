@@ -1,4 +1,4 @@
-Camellia-petal    
-from cold streamlets for the sea    
-How soon it must die.    
+See: surviving suns    
+loneliness? Just one leaf    
+Silent clouds of stars    
 

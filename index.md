@@ -1,4 +1,4 @@
-For a lovely bowl    
+Ballet in the air    
 The fragrant blossoms remain.    
-A butterfly floats and balances    
+to read while you wait    
 

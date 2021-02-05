@@ -1,4 +1,4 @@
-Learning something new    
-falling, falling, falling now    
-Of warriors’ dreams.    
+Poverty's child -    
+The fragrant blossoms remain.    
+The sun scatters    
 

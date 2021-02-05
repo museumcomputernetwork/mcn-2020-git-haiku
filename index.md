@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-scatters in the night; Now see    
-Stabs the darkness    
+Old dark sleepy pool    
+in dusky night    
+-ching me new tech skills!    
 

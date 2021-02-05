@@ -1,4 +1,4 @@
-Will we meet again    
-just enough to bend the leaves    
-the autumn dusk is here.    
+The summer grasses.    
+let us arrange these flowers    
+Cold pale eyes pour tears    
 

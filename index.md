@@ -1,4 +1,4 @@
 museum computer    
-watching us pass, met death    
-This autumn evening.    
+captains swore grand conquest    
+Darting dragon-fly!    
 

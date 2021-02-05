@@ -1,4 +1,4 @@
-The rains of summer join together.    
-from cold streamlets for the sea    
-from the kiri tree.    
+Poverty's child -    
+Twilight whippoorwill, whistle on, sweet deepener    
+Silent clouds of stars    
 

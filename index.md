@@ -1,4 +1,4 @@
-This is the new line    
-above white    
-Mogami River.    
+Lightning -    
+it needs but shiny wings and look    
+And so it must be    
 

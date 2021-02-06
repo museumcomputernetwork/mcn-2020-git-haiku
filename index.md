@@ -1,4 +1,4 @@
-Spring is passing.    
-Heron's cry    
-Cold pale eyes pour tears    
+Camellia-petal    
+starving for fat fish or mice    
+These dark hands of life    
 

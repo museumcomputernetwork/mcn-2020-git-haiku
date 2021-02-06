@@ -1,4 +1,4 @@
-In the cicada's cry    
-falling, falling, falling now    
-Of warriors’ dreams.    
+Under cherry-trees    
+I am off to bed - but ah!    
+the autumn dusk is here.    
 

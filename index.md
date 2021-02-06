@@ -1,4 +1,4 @@
-First white snow of fall    
-then cry all birds and fishes    
-My moonlit pillow    
+Why so scrawny, cat?    
+The lips feel cold.    
+Merge conflicts haunt me    
 

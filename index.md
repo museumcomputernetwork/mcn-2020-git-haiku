@@ -1,4 +1,4 @@
-Under cherry-trees    
-I am off to bed - but ah!    
-the autumn dusk is here.    
+The river gathering may rains    
+it needs but shiny wings and look    
+Contemptuous of frost    
 

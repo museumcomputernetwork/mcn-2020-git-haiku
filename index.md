@@ -1,4 +1,4 @@
-Spring is passing.    
-above white    
-And so it must be    
+MCN day 5 -    
+thoughts come - and there is loneliness;    
+Splash!    
 

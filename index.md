@@ -1,4 +1,4 @@
-hello and how are we    
-How swift it is    
-Stabs the darkness    
+This is the new line    
+above white    
+Mogami River.    
 

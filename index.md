@@ -1,4 +1,4 @@
-In the cicada's cry    
-therefore our thanks dark clouds    
-My moonlit pillow    
+Wake! The sky is light!    
+Heron's cry    
+A water-jewel    
 

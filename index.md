@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Twilight whippoorwill, whistle on, sweet deepener    
-It’s the Doll’s Festival.    
+First white snow of fall    
+then cry all birds and fishes    
+My moonlit pillow    
 

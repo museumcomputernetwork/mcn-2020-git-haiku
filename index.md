@@ -1,4 +1,4 @@
-Now in sad autumn    
-fell in silent dawn, spilling    
-Waterfall music    
+Must springtime fade?    
+he starts to grind the rice,    
+A solitary bird    
 

@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-A water-jewel    
+Now in sad autumn    
+fell in silent dawn, spilling    
+Waterfall music    
 

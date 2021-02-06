@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-The lips feel cold.    
-Merge conflicts haunt me    
+In the cicada's cry    
+falling, falling, falling now    
+Of warriors’ dreams.    
 

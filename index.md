@@ -1,4 +1,4 @@
-MCN day 5 -    
-thoughts come - and there is loneliness;    
-Splash!    
+The rains of summer join together.    
+Twilight whippoorwill, whistle on, sweet deepener    
+It’s the Doll’s Festival.    
 

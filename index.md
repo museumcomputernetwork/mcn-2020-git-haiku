@@ -1,4 +1,4 @@
-The river gathering may rains    
-it needs but shiny wings and look    
-Contemptuous of frost    
+Lady butterfly    
+scatters in the night; Now see    
+The sun scatters    
 

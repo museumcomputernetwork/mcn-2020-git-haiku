@@ -1,4 +1,4 @@
-Lady butterfly    
-scatters in the night; Now see    
-The sun scatters    
+Cloud of cherry-bloom    
+these brilliant-hued hibiscus    
+Stabs the darkness    
 

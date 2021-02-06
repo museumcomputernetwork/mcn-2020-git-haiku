@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
-Of warriors’ dreams.    
+Imaging skills flow    
+visit the ancestral grave    
+But he's beautiful!    
 

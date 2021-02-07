@@ -1,4 +1,4 @@
-The sea darkening    
-network is awesome for tea-    
-This autumn evening.    
+MCN '20    
+Here along this way but I,    
+are darkened . . .    
 

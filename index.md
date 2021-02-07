@@ -1,4 +1,4 @@
-MCN '20    
-Here along this way but I,    
-are darkened . . .    
+Spring is passing.    
+even the crickets' singing    
+Moon-lighted mountains!    
 

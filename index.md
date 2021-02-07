@@ -1,4 +1,4 @@
-Seas are wild tonight    
-these heavy snow-flakes settling    
-Darting dragon-fly!    
+Ballet in the air    
+Is also changed to another    
+Among the flowers    
 

@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Exhausted from video    
-From the kiri tree.    
+Spring is passing.    
+All that remains    
+The Autumn wind.    
 

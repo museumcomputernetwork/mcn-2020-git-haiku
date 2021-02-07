@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-I must work and attend MCN    
-Cold pale eyes pour tears    
+Imaging skills flow    
+creating git hub hides    
+But he's beautiful!    
 

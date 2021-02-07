@@ -1,4 +1,4 @@
-None is travelling    
-There's no sign that can foretell    
-Splash!    
+Ah me! I am one    
+not even a magazine    
+With tears.    
 

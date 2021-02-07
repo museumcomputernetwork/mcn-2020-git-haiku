@@ -1,4 +1,4 @@
-Spring is passing.    
-All that remains    
-The Autumn wind.    
+Dewdrop, let me cleanse    
+I must work and attend MCN    
+Cold pale eyes pour tears    
 

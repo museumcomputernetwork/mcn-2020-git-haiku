@@ -1,4 +1,4 @@
-Temple bells die out.    
-Penetrating the very rock,    
-Silent clouds of stars    
+The sea darkening    
+network is awesome for tea-    
+This autumn evening.    
 

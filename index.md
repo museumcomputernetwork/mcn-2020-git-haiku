@@ -1,4 +1,4 @@
-None is travelling    
-tolling twilight bell; Temple    
-The sun scatters    
+Learning something new    
+How swift it is    
+Crying, whirling, white    
 

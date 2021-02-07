@@ -1,4 +1,4 @@
-Ballet in the air    
-Is also changed to another    
-Among the flowers    
+Ah me! I am one    
+dead leaves alone foregather    
+Come to rest our necks    
 

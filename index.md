@@ -1,4 +1,4 @@
-Seas are wild tonight    
-watching us pass, met death    
-A water-jewel    
+Ballet in the air    
+fell in silent dawn, spilling    
+Of warriors’ dreams.    
 

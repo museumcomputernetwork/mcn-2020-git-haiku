@@ -1,4 +1,4 @@
-Ah me! I am one    
-not even a magazine    
-With tears.    
+Seas are wild tonight    
+these heavy snow-flakes settling    
+Darting dragon-fly!    
 

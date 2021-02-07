@@ -1,4 +1,4 @@
-Mountain-rose petals    
-The fragrant blossoms remain.    
-are darkened    
+Temple bells die out.    
+Penetrating the very rock,    
+Silent clouds of stars    
 

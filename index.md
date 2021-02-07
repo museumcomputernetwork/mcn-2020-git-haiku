@@ -1,4 +1,4 @@
-Temple bells die out.    
-i understand github now    
-A lovely sunset    
+Oh, tranquility!    
+Exhausted from video    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Waterfall music    
+None is travelling    
+There's no sign that can foretell    
+Splash!    
 

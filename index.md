@@ -1,4 +1,4 @@
-Cold first winter rain    
-who spends his little breakfast    
-and gazes at the moon.    
+I am at the MCN    
+visit the ancestral grave    
+This autumn evening.    
 

@@ -1,4 +1,4 @@
-No oil to read by    
-twin butterflies until, twice white    
-This autumn evening.    
+The sea darkening    
+Penetrating the very rock,    
+And evening bell    
 

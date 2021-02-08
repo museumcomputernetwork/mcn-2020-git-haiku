@@ -1,4 +1,4 @@
-In the cicada's cry    
-as I take my darkening path    
-Silent clouds of stars    
+Now in sad autumn    
+above white    
+With tears.    
 

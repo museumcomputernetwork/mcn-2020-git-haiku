@@ -1,4 +1,4 @@
-High up in the trees    
-How swift it is    
-A solitary bird    
+Nine times arising    
+network is awesome for tea-    
+Ueno? Asakura?    
 

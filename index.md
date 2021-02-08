@@ -1,4 +1,4 @@
-The sea darkening    
-Penetrating the very rock,    
-And evening bell    
+The summer grasses.    
+in dusky night    
+Like Git and haikus!    
 

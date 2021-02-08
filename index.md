@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-oh voices of the wild ducks    
-from looking at the moon.    
+Oh, tranquility!    
+Twilight whippoorwill, whistle on, sweet deepener    
+On the temple porch    
 

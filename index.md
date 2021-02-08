@@ -1,4 +1,4 @@
-Spring is passing.    
-stretching over Sado Island    
-With tears.    
+No oil to read by    
+twin butterflies until, twice white    
+This autumn evening.    
 

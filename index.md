@@ -1,4 +1,4 @@
-Temple bells die out.    
-Here along this way but I,    
-Bearded, with bent canes    
+Such utter silence!    
+perfumes her wings by floating    
+Darting dragon-fly!    
 

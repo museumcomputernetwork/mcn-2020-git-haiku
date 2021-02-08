@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-it needs but shiny wings and look    
-Muffled by hot rocks    
+Temple bells die out.    
+Here along this way but I,    
+Bearded, with bent canes    
 

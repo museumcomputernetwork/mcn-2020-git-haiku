@@ -1,4 +1,4 @@
-Nine times arising    
-network is awesome for tea-    
-Ueno? Asakura?    
+Too curious flower    
+There's no sign that can foretell    
+how interesting    
 

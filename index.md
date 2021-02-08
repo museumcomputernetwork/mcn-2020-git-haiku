@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-quick unexpected frog    
-Of dark loneliness    
+High up in the trees    
+How swift it is    
+A solitary bird    
 

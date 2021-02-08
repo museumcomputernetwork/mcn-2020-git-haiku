@@ -1,4 +1,4 @@
-Such utter silence!    
-perfumes her wings by floating    
-Darting dragon-fly!    
+A owner of the old thatched hut    
+quick unexpected frog    
+Of dark loneliness    
 

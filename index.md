@@ -1,4 +1,4 @@
-Seek on high bare trails    
-in your brief sweet waters    
-Darting dragon-fly!    
+Dawn-shining mountains    
+it needs but shiny wings and look    
+Muffled by hot rocks    
 

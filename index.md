@@ -1,4 +1,4 @@
-I am at the MCN    
-visit the ancestral grave    
-This autumn evening.    
+In the cicada's cry    
+as I take my darkening path    
+Silent clouds of stars    
 

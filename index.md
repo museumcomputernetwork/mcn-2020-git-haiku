@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The lips feel cold.    
-And evening bell    
+First white snow of fall    
+captains swore grand conquest    
+to read while you wait    
 

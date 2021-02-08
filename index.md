@@ -1,4 +1,4 @@
-exciting conference day    
-visit the ancestral grave    
-Our hungry donkey    
+The rains of summer join together.    
+is quieted with creepers    
+A little woven cape    
 

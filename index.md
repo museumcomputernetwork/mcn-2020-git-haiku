@@ -1,4 +1,4 @@
-Temple bells die out.    
-April's air stirs in willow-leaves    
-With tears.    
+Dry cheerful cricket    
+as I take my darkening path    
+Like our tendrilled life    
 

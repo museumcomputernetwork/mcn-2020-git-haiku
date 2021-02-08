@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Twilight whippoorwill, whistle on, sweet deepener    
-On the temple porch    
+Seek on high bare trails    
+in your brief sweet waters    
+Darting dragon-fly!    
 

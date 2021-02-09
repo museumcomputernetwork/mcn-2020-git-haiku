@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Heron's cry    
-Marks only midnight yet    
+None is travelling    
+thoughts come - and there is loneliness;    
+Mountain-top jewels    
 

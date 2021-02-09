@@ -1,4 +1,4 @@
-This snowy morning    
-creating git hub hides    
-On the temple porch    
+Must springtime fade?    
+to see the moon, whose solemn pace    
+Bush-clover petals    
 

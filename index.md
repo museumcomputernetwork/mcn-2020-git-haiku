@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
--ching me new tech skills!    
+Clouds come from time to time -    
+above white    
+Or backyard love?    
 

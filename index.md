@@ -1,4 +1,4 @@
-Must springtime fade?    
-to see the moon, whose solemn pace    
-Bush-clover petals    
+Seek on high bare trails    
+Heron's cry    
+Marks only midnight yet    
 

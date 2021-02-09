@@ -1,4 +1,4 @@
-Lady butterfly    
+Chirping of the quails    
 Penetrating the very rock,    
-Splash!    
+-ching me new tech skills!    
 

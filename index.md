@@ -1,4 +1,4 @@
-White cloud of mist    
-The fragrant blossoms remain.    
-This autumn evening.    
+Under cherry-trees    
+watching us pass, met death    
+It’s the Doll’s Festival.    
 

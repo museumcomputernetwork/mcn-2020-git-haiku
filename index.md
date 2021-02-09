@@ -1,4 +1,4 @@
-Daylight is here now    
-these brilliant-hued hibiscus    
-Goes plop! Watersplash!    
+Lady butterfly    
+Penetrating the very rock,    
+Splash!    
 

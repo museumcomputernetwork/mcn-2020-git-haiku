@@ -1,4 +1,4 @@
-The sea darkening    
-tolling twilight bell; Temple    
-How soon it must die.    
+Imaging skills flow    
+Is also changed to another    
+Splash!    
 

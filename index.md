@@ -1,4 +1,4 @@
-Lightning -    
-There's no sign that can foretell    
-A cicada’s voice.    
+Daylight is here now    
+these brilliant-hued hibiscus    
+Goes plop! Watersplash!    
 

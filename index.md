@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-How swift it is    
-A perfect evening!    
+Lightning -    
+There's no sign that can foretell    
+A cicada’s voice.    
 

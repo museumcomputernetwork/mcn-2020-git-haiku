@@ -1,4 +1,4 @@
-For a lovely bowl    
-A frog jumps in -    
-A butterfly floats and balances    
+This snowy morning    
+creating git hub hides    
+On the temple porch    
 

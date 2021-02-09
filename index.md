@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-as I take my darkening path    
-Like our tendrilled life    
+For a lovely bowl    
+A frog jumps in -    
+A butterfly floats and balances    
 

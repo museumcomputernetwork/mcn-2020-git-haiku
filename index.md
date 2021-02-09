@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-above white    
-Or backyard love?    
+Why so scrawny, cat?    
+How swift it is    
+A perfect evening!    
 

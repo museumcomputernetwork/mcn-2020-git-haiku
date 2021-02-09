@@ -1,4 +1,4 @@
-Spring is passing.    
-network is awesome for tea-    
-Mogami River.    
+Clouds come from time to time -    
+adventure awaits outside    
+Or backyard love?    
 

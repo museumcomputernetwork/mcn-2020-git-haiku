@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-A frog jumps in -    
-But he's beautiful!    
+Chirping of the quails    
+not even a magazine    
+It’s the Doll’s Festival.    
 

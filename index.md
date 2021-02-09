@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-adventure awaits outside    
-Or backyard love?    
+Bright red pepper-pod    
+A small weed    
+Stabs the darkness    
 

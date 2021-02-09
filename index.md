@@ -1,4 +1,4 @@
-Under cherry-trees    
-watching us pass, met death    
-It’s the Doll’s Festival.    
+Spring is passing.    
+Exhausted from video    
+Enjoying the house    
 

@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-A small weed    
-Stabs the darkness    
+White cloud of mist    
+The fragrant blossoms remain.    
+This autumn evening.    
 

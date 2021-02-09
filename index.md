@@ -1,4 +1,4 @@
-the zoom waiting room    
-A frog jumps in -    
-email confirmation demands met    
+The first day of the year:    
+perfumes her wings by floating    
+Come to rest our necks    
 

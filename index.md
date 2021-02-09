@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-Mountain-top jewels    
+the zoom waiting room    
+A frog jumps in -    
+email confirmation demands met    
 

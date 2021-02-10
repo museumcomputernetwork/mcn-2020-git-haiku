@@ -1,4 +1,4 @@
-The rains of summer join together.    
-poor monkey, you too could use    
-How soon it must die.    
+None is travelling    
+thoughts come - and there is loneliness;    
+Moon-lighted mountains!    
 

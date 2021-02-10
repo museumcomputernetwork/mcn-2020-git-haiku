@@ -1,4 +1,4 @@
-Now in sad autumn    
-thoughts come - and there is loneliness;    
-the autumn dusk is here.    
+In the cicada's cry    
+loneliness? Just one leaf    
+are darkened . . .    
 

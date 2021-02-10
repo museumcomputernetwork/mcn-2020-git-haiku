@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-Moon-lighted mountains!    
+Here, where a thousand    
+watching us pass, met death    
+Basho lines the moon    
 

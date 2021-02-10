@@ -1,4 +1,4 @@
-Learning something new    
-I must work and attend MCN    
-With tears.    
+museum computer    
+Penetrating the very rock,    
+Two white butterflies?    
 

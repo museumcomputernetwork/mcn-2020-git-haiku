@@ -1,4 +1,4 @@
-Silent the old town    
-spare my little buzzing friends    
-This autumn evening.    
+Now in sad autumn    
+thoughts come - and there is loneliness;    
+the autumn dusk is here.    
 

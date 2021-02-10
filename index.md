@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The birds cry, and the fishes’ eyes are     
-I need a coffee    
+An old pond    
+Not always easy to use    
+Enjoying the house    
 

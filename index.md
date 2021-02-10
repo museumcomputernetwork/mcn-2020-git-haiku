@@ -1,4 +1,4 @@
-Here, where a thousand    
-watching us pass, met death    
-Basho lines the moon    
+Spring is passing.    
+loneliness? Just one leaf    
+The Autumn wind.    
 

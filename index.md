@@ -1,4 +1,4 @@
-museum computer    
-Penetrating the very rock,    
-Two white butterflies?    
+The rains of summer join together.    
+How swift it is    
+Darting dragon-fly!    
 

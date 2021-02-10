@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-The fragrant blossoms remain.    
-How soon it must die.    
+Learning something new    
+I must work and attend MCN    
+With tears.    
 

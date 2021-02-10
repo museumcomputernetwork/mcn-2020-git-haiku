@@ -1,4 +1,4 @@
-Imaging skills flow    
-let us arrange these flowers    
-and gazes at the moon.    
+Dewdrop, let me cleanse    
+The birds cry, and the fishes’ eyes are     
+I need a coffee    
 

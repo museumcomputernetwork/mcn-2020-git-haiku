@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Heron's cry    
-It’s the Doll’s Festival.    
+This snowy morning    
+There's no sign that can foretell    
+cherry-blossoms . . .    
 

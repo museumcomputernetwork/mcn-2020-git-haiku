@@ -1,4 +1,4 @@
-Chirping of the quails    
-not even a magazine    
-It’s the Doll’s Festival.    
+An old pond    
+he starts to grind the rice,    
+from the kiri tree.    
 

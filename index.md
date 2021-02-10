@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-and bring to men a chance to rest    
-Stabs the darkness    
+The rains of summer join together.    
+poor monkey, you too could use    
+How soon it must die.    
 

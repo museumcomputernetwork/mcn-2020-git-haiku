@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-The Autumn wind.    
+snow falling soon now    
+An herbal tea, sit, listen    
+Bearded, with bent canes    
 

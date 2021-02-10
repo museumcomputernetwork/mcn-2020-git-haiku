@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-are darkened . . .    
+Why so scrawny, cat?    
+The fragrant blossoms remain.    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-How swift it is    
-Darting dragon-fly!    
+Black cloudbank broken    
+Heron's cry    
+It’s the Doll’s Festival.    
 

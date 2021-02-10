@@ -1,4 +1,4 @@
-Swallow in the dusk    
-thoughts come - and there is loneliness;    
-and gazes at the moon.    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+Mogami River.    
 

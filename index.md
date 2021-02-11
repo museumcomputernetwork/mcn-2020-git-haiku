@@ -1,4 +1,4 @@
-First white snow of fall    
-oh voices of the wild ducks    
-With tears.    
+Mountain-rose petals    
+i understand github now    
+Stabs the darkness    
 

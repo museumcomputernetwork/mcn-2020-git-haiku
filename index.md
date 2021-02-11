@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-A frog jumps in -    
-to read while you wait    
+Temple bells die out.    
+fell in silent dawn, spilling    
+Ueno? Asakura?    
 

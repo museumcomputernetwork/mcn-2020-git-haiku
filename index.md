@@ -1,4 +1,4 @@
-Ah me! I am one    
-watching us pass, met death    
-Of warriors’ dreams.    
+See: surviving suns    
+here at your flowering grave    
+Come to rest our necks    
 

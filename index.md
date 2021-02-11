@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-the scent of flowers floating    
-On the temple porch    
+In the sea-surf edge    
+quick unexpected frog    
+Cherry-blossoms    
 

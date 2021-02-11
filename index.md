@@ -1,4 +1,4 @@
-Now in sad autumn    
-thoughts come - and there is loneliness;    
-From the kiri tree.    
+Imaging skills flow    
+here at your flowering grave    
+Of faded daffodils    
 

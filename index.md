@@ -1,4 +1,4 @@
-The river gathering may rains    
-loneliness? Just one leaf    
-This autumn evening.    
+The summer grasses.    
+How swift it is    
+It’s the Doll’s Festival.    
 

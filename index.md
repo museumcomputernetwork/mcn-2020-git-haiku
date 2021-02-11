@@ -1,4 +1,4 @@
-Lady butterfly    
-oh voices of the wild ducks    
-But he's beautiful!    
+museum computer    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 

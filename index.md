@@ -1,4 +1,4 @@
-MCN '20    
-Penetrating the very rock,    
-Of warriors’ dreams.    
+Temple bells die out.    
+Exhausted from video    
+These dark hands of life    
 

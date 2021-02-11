@@ -1,4 +1,4 @@
-Silent the old town    
-falling, falling, falling now    
-My moonlit pillow    
+MCN '20    
+Penetrating the very rock,    
+Of warriors’ dreams.    
 

@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-and gazes at the moon.    
+Cold first winter rain    
+quick unexpected frog    
+And so it must be    
 

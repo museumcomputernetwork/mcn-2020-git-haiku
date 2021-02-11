@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-poor monkey, you too could use    
-from looking at the moon.    
+The river gathering may rains    
+loneliness? Just one leaf    
+This autumn evening.    
 

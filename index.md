@@ -1,4 +1,4 @@
-See: surviving suns    
-here at your flowering grave    
-Come to rest our necks    
+Now in sad autumn    
+thoughts come - and there is loneliness;    
+From the kiri tree.    
 

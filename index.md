@@ -1,4 +1,4 @@
-Such utter silence!    
-and bring to men a chance to rest    
-Enjoying the house    
+Silent the old town    
+falling, falling, falling now    
+My moonlit pillow    
 

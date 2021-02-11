@@ -1,4 +1,4 @@
-The rains of summer join together.    
+For a lovely bowl    
 All that remains    
-About this ignite    
+and gazes at the moon.    
 

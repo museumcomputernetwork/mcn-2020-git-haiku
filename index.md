@@ -1,4 +1,4 @@
-The summer grasses.    
-How swift it is    
-It’s the Doll’s Festival.    
+Ah me! I am one    
+watching us pass, met death    
+Of warriors’ dreams.    
 

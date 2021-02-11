@@ -1,4 +1,4 @@
-Temple bells die out.    
-fell in silent dawn, spilling    
-Ueno? Asakura?    
+The rains of summer join together.    
+All that remains    
+About this ignite    
 

@@ -1,4 +1,4 @@
-museum computer    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+First white snow of fall    
+oh voices of the wild ducks    
+With tears.    
 

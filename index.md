@@ -1,4 +1,4 @@
-museum computer    
+In the cicada's cry    
 soup, the salad, fish and all    
-email confirmation demands met    
+They meet, they mate    
 

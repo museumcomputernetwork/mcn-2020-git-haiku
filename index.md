@@ -1,4 +1,4 @@
-In the cicada's cry    
-soup, the salad, fish and all    
-They meet, they mate    
+The sea darkening    
+An herbal tea, sit, listen    
+On the temple porch    
 

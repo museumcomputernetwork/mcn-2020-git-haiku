@@ -1,4 +1,4 @@
-snow falling soon now    
-captains swore grand conquest    
-The Autumn wind.    
+Poverty's child -    
+April's air stirs in willow-leaves    
+Stabs the darkness    
 

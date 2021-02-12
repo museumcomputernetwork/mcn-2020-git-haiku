@@ -1,4 +1,4 @@
-The river gathering may rains    
-in dusky night    
-are darkened    
+snow falling soon now    
+captains swore grand conquest    
+The Autumn wind.    
 

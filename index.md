@@ -1,4 +1,4 @@
-See: surviving suns    
-spare my little buzzing friends    
-and gazes at the moon.    
+museum computer    
+soup, the salad, fish and all    
+email confirmation demands met    
 

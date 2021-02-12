@@ -1,4 +1,4 @@
-Poverty's child -    
-visit the ancestral grave    
-Since there is no rice    
+Will we meet again    
+The fragrant blossoms remain.    
+Seasoned with petals    
 

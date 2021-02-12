@@ -1,4 +1,4 @@
-The river gathering may rains    
-above white    
-Like our tendrilled life    
+Camellia-petal    
+Penetrating the very rock,    
+A little woven cape    
 

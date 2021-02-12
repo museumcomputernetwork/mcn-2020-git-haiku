@@ -1,4 +1,4 @@
-Ballet in the air    
-All that remains    
-A cicada’s voice.    
+The river gathering may rains    
+in dusky night    
+are darkened    
 

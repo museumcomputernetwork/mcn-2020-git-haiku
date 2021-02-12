@@ -1,4 +1,4 @@
-None is travelling    
-Tiffany Sprague edits books    
-Mountain-top jewels    
+museum computer    
+An herbal tea, sit, listen    
+Cold pale eyes pour tears    
 

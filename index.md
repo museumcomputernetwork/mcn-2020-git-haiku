@@ -1,4 +1,4 @@
-Will we meet again    
-The fragrant blossoms remain.    
-Seasoned with petals    
+None is travelling    
+Tiffany Sprague edits books    
+Mountain-top jewels    
 

@@ -1,4 +1,4 @@
-Imaging skills flow    
-it needs but shiny wings and look    
-How soon it must die.    
+The first day of the year:    
+that black crow I hate so much    
+Of faded daffodils    
 

@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
--ching me new tech skills!    
+White cloud of mist    
+Here along this way but I,    
+Waterfall music    
 

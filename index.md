@@ -1,4 +1,4 @@
-Spring is passing.    
-who spends his little breakfast    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+-ching me new tech skills!    
 

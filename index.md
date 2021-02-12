@@ -1,4 +1,4 @@
-Poverty's child -    
-just enough to bend the leaves    
-This autumn evening.    
+Ballet in the air    
+All that remains    
+A cicada’s voice.    
 

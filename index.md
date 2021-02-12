@@ -1,4 +1,4 @@
-Camellia-petal    
-Penetrating the very rock,    
-A little woven cape    
+Oh, tranquility!    
+dead leaves alone foregather    
+Or backyard love?    
 

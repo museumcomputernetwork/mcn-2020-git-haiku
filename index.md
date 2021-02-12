@@ -1,4 +1,4 @@
-the zoom waiting room    
-starving for fat fish or mice    
-Merge conflicts haunt me    
+See: surviving suns    
+spare my little buzzing friends    
+and gazes at the moon.    
 

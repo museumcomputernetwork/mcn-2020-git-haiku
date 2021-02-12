@@ -1,4 +1,4 @@
-Temple bells die out.    
-Exhausted from video    
-These dark hands of life    
+The river gathering may rains    
+above white    
+Like our tendrilled life    
 

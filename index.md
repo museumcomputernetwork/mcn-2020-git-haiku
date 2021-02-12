@@ -1,4 +1,4 @@
-museum computer    
-An herbal tea, sit, listen    
-Cold pale eyes pour tears    
+Poverty's child -    
+just enough to bend the leaves    
+This autumn evening.    
 

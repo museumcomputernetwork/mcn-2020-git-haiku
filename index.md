@@ -1,4 +1,4 @@
-Lightning -    
-to see the moon, whose solemn pace    
-Of warriors’ dreams.    
+Swallow in the dusk    
+these brilliant-hued hibiscus    
+Darting dragon-fly!    
 

@@ -1,4 +1,4 @@
-Cold first winter rain    
-MCN is magical    
-Tall grass their monument    
+Indoors wintertime    
+All that remains    
+Crying, whirling, white    
 

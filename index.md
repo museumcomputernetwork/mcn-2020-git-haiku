@@ -1,4 +1,4 @@
-Won't you come and see    
-not even a magazine    
-are darkened . . .    
+Lightning -    
+to see the moon, whose solemn pace    
+Of warriors’ dreams.    
 

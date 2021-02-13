@@ -1,4 +1,4 @@
-Indoors wintertime    
-Twilight whippoorwill, whistle on, sweet deepener    
-cherry-blossoms . . .    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+Cherry-blossoms    
 

@@ -1,4 +1,4 @@
-Lightning -    
-let us to the road again    
-Goes plop! Watersplash!    
+Indoors wintertime    
+Twilight whippoorwill, whistle on, sweet deepener    
+cherry-blossoms . . .    
 

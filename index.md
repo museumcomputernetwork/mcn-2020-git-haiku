@@ -1,4 +1,4 @@
-The sea darkening    
-An herbal tea, sit, listen    
-On the temple porch    
+Mountain-rose petals    
+not even a magazine    
+but inside, coffee    
 

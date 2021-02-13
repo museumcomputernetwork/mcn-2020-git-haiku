@@ -1,4 +1,4 @@
-Swallow in the dusk    
-he starts to grind the rice,    
-Like our tendrilled life    
+snow falling soon now    
+from cold streamlets for the sea    
+Ueno? Asakura?    
 

@@ -1,4 +1,4 @@
-Learning something new    
-spare my little buzzing friends    
-Mogami River.    
+Clouds come from time to time -    
+How swift it is    
+Come to rest our necks    
 

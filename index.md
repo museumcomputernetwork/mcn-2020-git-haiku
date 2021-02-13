@@ -1,4 +1,4 @@
-snow falling soon now    
-from cold streamlets for the sea    
-Ueno? Asakura?    
+Lightning -    
+The lips feel cold.    
+Our hungry donkey    
 

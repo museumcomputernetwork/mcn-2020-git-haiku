@@ -1,4 +1,4 @@
-High up in the trees    
-soup, the salad, fish and all    
-From the kiri tree.    
+Under cherry-trees    
+he starts to grind the rice,    
+Mogami River.    
 

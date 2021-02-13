@@ -1,4 +1,4 @@
-Carven gods long gone    
-April's air stirs in willow-leaves    
-Cherry-blossoms    
+Won't you come and see    
+not even a magazine    
+are darkened . . .    
 

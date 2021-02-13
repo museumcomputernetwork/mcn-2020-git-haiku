@@ -1,4 +1,4 @@
-Under cherry-trees    
-he starts to grind the rice,    
-Mogami River.    
+Cold first winter rain    
+MCN is magical    
+Tall grass their monument    
 

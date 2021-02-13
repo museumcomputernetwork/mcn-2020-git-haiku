@@ -1,4 +1,4 @@
-Poverty's child -    
-I must work and attend MCN    
-to read while you wait    
+Dewdrop, let me cleanse    
+loneliness? Just one leaf    
+Thanks for the knowledge    
 

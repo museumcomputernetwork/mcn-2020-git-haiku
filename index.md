@@ -1,4 +1,4 @@
-Lightning -    
-The lips feel cold.    
-Our hungry donkey    
+Ah me! I am one    
+How swift it is    
+Darting dragon-fly!    
 

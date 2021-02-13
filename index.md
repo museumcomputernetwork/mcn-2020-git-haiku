@@ -1,4 +1,4 @@
 Swallow in the dusk    
-these brilliant-hued hibiscus    
-Darting dragon-fly!    
+stretching over Sado Island    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-The lips feel cold.    
-Or backyard love?    
+Lightning -    
+let us to the road again    
+Goes plop! Watersplash!    
 

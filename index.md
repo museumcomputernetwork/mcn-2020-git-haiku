@@ -1,4 +1,4 @@
-Such utter silence!    
-stretching over Sado Island    
-Splash!    
+Learning something new    
+spare my little buzzing friends    
+Mogami River.    
 

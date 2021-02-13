@@ -1,4 +1,4 @@
-Ah me! I am one    
-How swift it is    
-Darting dragon-fly!    
+First white snow of fall    
+these brilliant-hued hibiscus    
+Our hungry donkey    
 

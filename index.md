@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Companion butterfly!    
+None is travelling    
+that black crow I hate so much    
+This autumn evening.    
 

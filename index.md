@@ -1,4 +1,4 @@
-Now in sad autumn    
-I must work and attend MCN    
-Lilies on the rocks    
+MCN day 5 -    
+network is awesome for tea-    
+Splash!    
 

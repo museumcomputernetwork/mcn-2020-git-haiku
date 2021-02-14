@@ -1,4 +1,4 @@
-See: surviving suns    
-starving for fat fish or mice    
-About this ignite    
+Poverty's child -    
+visit the ancestral grave    
+Goes plop! Watersplash!    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Is also changed to another    
-Crying, whirling, white    
+The summer grasses.    
+in your brief sweet waters    
+Mountain-top jewels    
 

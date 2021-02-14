@@ -1,4 +1,4 @@
-Poverty's child -    
-visit the ancestral grave    
-Goes plop! Watersplash!    
+Spring is passing.    
+MCN is magical    
+are darkened . . .    
 

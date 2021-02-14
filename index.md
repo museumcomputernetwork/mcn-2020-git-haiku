@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Twilight whippoorwill, whistle on, sweet deepener    
-A little woven cape    
+An old pond    
+The birds cry, and the fishes’ eyes are     
+The sun scatters    
 

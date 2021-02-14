@@ -1,4 +1,4 @@
-The summer grasses.    
-in your brief sweet waters    
-Mountain-top jewels    
+Temple bells die out.    
+stretching over Sado Island    
+Companion butterfly!    
 

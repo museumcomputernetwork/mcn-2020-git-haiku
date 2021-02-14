@@ -1,4 +1,4 @@
-Spring is passing.    
-MCN is magical    
-are darkened . . .    
+Oh, tranquility!    
+Not always easy to use    
+From the kiri tree.    
 

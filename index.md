@@ -1,4 +1,4 @@
-In the cicada's cry    
-like ripple on the water    
-They meet, they mate    
+Dawn-shining mountains    
+poor monkey, you too could use    
+From the kiri tree.    
 

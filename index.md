@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-How swift it is    
-Come to rest our necks    
+Black cloudbank broken    
+Twilight whippoorwill, whistle on, sweet deepener    
+A little woven cape    
 

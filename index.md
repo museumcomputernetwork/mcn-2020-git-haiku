@@ -1,4 +1,4 @@
-Such utter silence!    
-MCN is magical    
-The autumn dusk is here.    
+This is a haiku    
+from cold streamlets for the sea    
+Our hungry donkey    
 

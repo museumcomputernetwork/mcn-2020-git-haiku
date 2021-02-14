@@ -1,4 +1,4 @@
-Carven gods long gone    
-spare my little buzzing friends    
-Stabs the darkness    
+Clouds come from time to time -    
+Is also changed to another    
+Crying, whirling, white    
 

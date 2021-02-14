@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-poor monkey, you too could use    
-From the kiri tree.    
+Such utter silence!    
+MCN is magical    
+The autumn dusk is here.    
 

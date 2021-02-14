@@ -1,4 +1,4 @@
-This is a haiku    
-from cold streamlets for the sea    
-Our hungry donkey    
+Bright red pepper-pod    
+above white    
+Goes plop! Watersplash!    
 

@@ -1,4 +1,4 @@
-None is travelling    
-that black crow I hate so much    
-This autumn evening.    
+Now in sad autumn    
+I must work and attend MCN    
+Lilies on the rocks    
 

@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Penetrating the very rock,    
-how interesting    
+Dawn-shining mountains    
+therefore our thanks dark clouds    
+Waterfall music    
 

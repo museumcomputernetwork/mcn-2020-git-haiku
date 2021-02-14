@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-above white    
-Goes plop! Watersplash!    
+A owner of the old thatched hut    
+April's air stirs in willow-leaves    
+Basho lines the moon    
 

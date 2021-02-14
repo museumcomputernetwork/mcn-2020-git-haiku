@@ -1,4 +1,4 @@
-Won't you come and see    
-even the crickets' singing    
-Moon-lighted mountains!    
+In the cicada's cry    
+like ripple on the water    
+They meet, they mate    
 

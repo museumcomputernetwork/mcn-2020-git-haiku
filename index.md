@@ -1,4 +1,4 @@
-Daylight is here now    
-stretching over Sado Island    
-Bush-clover petals    
+Now in sad autumn    
+All that remains    
+Thanks for the knowledge    
 

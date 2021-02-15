@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-twin butterflies until, twice white    
-Can she edit this?    
+snow falling soon now    
+All that remains    
+Two white butterflies?    
 

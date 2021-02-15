@@ -1,4 +1,4 @@
-Silent the old town    
-loneliness? Just one leaf    
--ching me new tech skills!    
+The summer grasses.    
+here at your flowering grave    
+Come to rest our necks    
 

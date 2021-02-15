@@ -1,4 +1,4 @@
-When you say something,    
-chirping, keeps the autumn gay    
-email confirmation demands met    
+exciting conference day    
+that black crow I hate so much    
+With tears.    
 

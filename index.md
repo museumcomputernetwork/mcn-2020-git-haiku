@@ -1,4 +1,4 @@
-First white snow of fall    
-in dusky night    
-Lilies on the rocks    
+In the sea-surf edge    
+here at your flowering grave    
+Like our tendrilled life    
 

@@ -1,4 +1,4 @@
-exciting conference day    
-that black crow I hate so much    
-With tears.    
+Bright red pepper-pod    
+above white    
+A perfect evening!    
 

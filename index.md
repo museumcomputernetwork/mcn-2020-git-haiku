@@ -1,4 +1,4 @@
-Under cherry-trees    
-Heron's cry    
-Thanks for the knowledge    
+Lightning -    
+MCN is magical    
+They meet, they mate    
 

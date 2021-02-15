@@ -1,4 +1,4 @@
-In the sea-surf edge    
-here at your flowering grave    
-Like our tendrilled life    
+Silent the old town    
+loneliness? Just one leaf    
+-ching me new tech skills!    
 

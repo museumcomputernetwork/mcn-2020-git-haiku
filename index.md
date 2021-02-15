@@ -1,4 +1,4 @@
-Camellia-petal    
-Please don't tell my museum    
-Mogami River.    
+The first day of the year:    
+falling, falling, falling now    
+With tears.    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-network is awesome for tea-    
-Bearded, with bent canes    
+Must springtime fade?    
+Is also changed to another    
+cherry-blossoms . . .    
 

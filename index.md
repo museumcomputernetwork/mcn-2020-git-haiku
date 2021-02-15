@@ -1,4 +1,4 @@
-An old pond    
-Is also changed to another    
-It’s the Doll’s Festival.    
+Won't you come and see    
+Here along this way but I,    
+From the kiri tree.    
 

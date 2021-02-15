@@ -1,4 +1,4 @@
-Must springtime fade?    
-Is also changed to another    
-cherry-blossoms . . .    
+Now that eyes of hawks    
+the scent of flowers floating    
+But he's beautiful!    
 

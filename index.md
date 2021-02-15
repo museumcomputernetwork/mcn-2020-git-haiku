@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-fell in silent dawn, spilling    
-Splash!    
+Camellia-petal    
+Please don't tell my museum    
+Mogami River.    
 

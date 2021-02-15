@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Is also changed to another    
-Companion butterfly!    
+Daylight is here now    
+stretching over Sado Island    
+Bush-clover petals    
 

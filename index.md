@@ -1,4 +1,4 @@
-The first day of the year:    
-falling, falling, falling now    
-With tears.    
+Nine times arising    
+I am off to bed - but ah!    
+are darkened    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-here at your flowering grave    
-Come to rest our necks    
+Clouds come from time to time -    
+fell in silent dawn, spilling    
+Splash!    
 

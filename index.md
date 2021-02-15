@@ -1,4 +1,4 @@
-snow falling soon now    
-All that remains    
-Two white butterflies?    
+Dewdrop, let me cleanse    
+Is also changed to another    
+Companion butterfly!    
 

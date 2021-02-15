@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-the scent of flowers floating    
-But he's beautiful!    
+First white snow of fall    
+in dusky night    
+Lilies on the rocks    
 

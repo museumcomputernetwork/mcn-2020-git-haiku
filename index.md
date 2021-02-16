@@ -1,4 +1,4 @@
-Lightning -    
-Exhausted from video    
-From the kiri tree.    
+First white snow of fall    
+above white    
+About this ignite    
 

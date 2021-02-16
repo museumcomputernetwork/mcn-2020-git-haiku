@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-here at your flowering grave    
-This autumn evening.    
+See: surviving suns    
+and bring to men a chance to rest    
+With tears.    
 

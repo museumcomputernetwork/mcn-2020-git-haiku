@@ -1,4 +1,4 @@
-Must springtime fade?    
-in dusky night    
-Stabs the darkness    
+Glorious the moon    
+A small weed    
+With tears.    
 

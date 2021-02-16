@@ -1,4 +1,4 @@
-Learning something new    
-twin butterflies until, twice white    
-CHI turns seventeen    
+The first day of the year:    
+then cry all birds and fishes    
+Mountain-top jewels    
 

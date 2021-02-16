@@ -1,4 +1,4 @@
-Nine times arising    
-Penetrating the very rock,    
-Of faded daffodils    
+the zoom waiting room    
+I must work and attend MCN    
+I need a coffee    
 

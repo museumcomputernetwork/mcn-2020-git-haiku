@@ -1,4 +1,4 @@
-Poverty's child -    
-I am off to bed - but ah!    
-With tears.    
+Learning something new    
+twin butterflies until, twice white    
+CHI turns seventeen    
 

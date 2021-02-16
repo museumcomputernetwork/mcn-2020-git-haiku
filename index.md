@@ -1,4 +1,4 @@
-the zoom waiting room    
-I must work and attend MCN    
-I need a coffee    
+Lightning -    
+Exhausted from video    
+From the kiri tree.    
 

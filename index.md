@@ -1,4 +1,4 @@
-See: surviving suns    
-and bring to men a chance to rest    
+Poverty's child -    
+I am off to bed - but ah!    
 With tears.    
 

@@ -1,4 +1,4 @@
-For a lovely bowl    
-dead leaves alone foregather    
-Merge conflicts haunt me    
+The rains of summer join together.    
+A small weed    
+Like our tendrilled life    
 

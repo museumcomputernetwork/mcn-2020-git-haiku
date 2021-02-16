@@ -1,4 +1,4 @@
-First white snow of fall    
-above white    
-About this ignite    
+The first day of the year:    
+tolling twilight bell; Temple    
+Companion butterfly!    
 

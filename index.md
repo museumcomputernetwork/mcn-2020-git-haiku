@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Please don't tell my museum    
-cherry-blossoms . . .    
+Cloud of cherry-bloom    
+here at your flowering grave    
+This autumn evening.    
 

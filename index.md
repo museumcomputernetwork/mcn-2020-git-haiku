@@ -1,4 +1,4 @@
-The first day of the year:    
-then cry all birds and fishes    
-Mountain-top jewels    
+Swallow in the dusk    
+let us arrange these flowers    
+Our hungry donkey    
 

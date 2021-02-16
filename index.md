@@ -1,4 +1,4 @@
-The first day of the year:    
-tolling twilight bell; Temple    
-Companion butterfly!    
+Won't you come and see    
+How swift it is    
+the autumn dusk is here.    
 

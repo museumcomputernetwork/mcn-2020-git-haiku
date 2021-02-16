@@ -1,4 +1,4 @@
-Won't you come and see    
-How swift it is    
-the autumn dusk is here.    
+Now the swinging bridge    
+Please don't tell my museum    
+cherry-blossoms . . .    
 

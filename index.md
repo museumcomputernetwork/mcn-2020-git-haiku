@@ -1,4 +1,4 @@
-Under cherry-trees    
-I am off to bed - but ah!    
-Come to rest our necks    
+Poverty's child -    
+he starts to grind the rice,    
+A water-jewel    
 

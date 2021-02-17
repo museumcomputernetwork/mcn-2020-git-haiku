@@ -1,4 +1,4 @@
-Carven gods long gone    
-as I take my darkening path    
-Bush-clover petals    
+Lightning -    
+sky-reflecting violets    
+The Autumn wind.    
 

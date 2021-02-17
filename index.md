@@ -1,4 +1,4 @@
-Poverty's child -    
-the scent of flowers floating    
-Contemptuous of frost    
+museum computer    
+loneliness? Just one leaf    
+from the kiri tree.    
 

@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-There's no sign that can foretell    
-Of warriors’ dreams.    
+Carven gods long gone    
+as I take my darkening path    
+Bush-clover petals    
 

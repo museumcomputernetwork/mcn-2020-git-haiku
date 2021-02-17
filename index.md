@@ -1,4 +1,4 @@
-Chirping of the quails    
-loneliness? Just one leaf    
-How soon it must die.    
+When you say something,    
+above white    
+from looking at the moon.    
 

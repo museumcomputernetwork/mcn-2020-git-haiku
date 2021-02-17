@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-captains swore grand conquest    
-Like our tendrilled life    
+Learning something new    
+as I take my darkening path    
+Mountain-top jewels    
 

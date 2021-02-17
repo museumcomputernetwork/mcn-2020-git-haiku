@@ -1,4 +1,4 @@
-When you say something,    
-above white    
-from looking at the moon.    
+This is the new line    
+Heron's cry    
+Mogami River.    
 

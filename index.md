@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-to see the moon, whose solemn pace    
-They meet, they mate    
+In the sea-surf edge    
+therefore our thanks dark clouds    
+A perfect evening!    
 

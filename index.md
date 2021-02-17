@@ -1,4 +1,4 @@
-MCN day 5 -    
-stretching over Sado Island    
-This autumn evening.    
+Under cherry-trees    
+I am off to bed - but ah!    
+Come to rest our necks    
 

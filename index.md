@@ -1,4 +1,4 @@
-Must springtime fade?    
-therefore our thanks dark clouds    
-With tears.    
+MCN day 5 -    
+stretching over Sado Island    
+This autumn evening.    
 

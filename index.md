@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-i understand github now    
-Of dark loneliness    
+The rains of summer join together.    
+he starts to grind the rice,    
+the autumn dusk is here.    
 

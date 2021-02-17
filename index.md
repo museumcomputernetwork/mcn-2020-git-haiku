@@ -1,4 +1,4 @@
-Seek on high bare trails    
-falling, falling, falling now    
-This autumn evening.    
+Chirping of the quails    
+loneliness? Just one leaf    
+How soon it must die.    
 

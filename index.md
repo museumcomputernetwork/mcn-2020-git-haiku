@@ -1,4 +1,4 @@
-The rains of summer join together.    
-he starts to grind the rice,    
-the autumn dusk is here.    
+Dry cheerful cricket    
+There's no sign that can foretell    
+Of warriors’ dreams.    
 

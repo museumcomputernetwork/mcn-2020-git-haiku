@@ -1,4 +1,4 @@
-Oh, tranquility!    
-I must work and attend MCN    
-A perfect evening!    
+Seek on high bare trails    
+falling, falling, falling now    
+This autumn evening.    
 

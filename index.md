@@ -1,4 +1,4 @@
-museum computer    
-loneliness? Just one leaf    
-from the kiri tree.    
+Bright red pepper-pod    
+captains swore grand conquest    
+Like our tendrilled life    
 

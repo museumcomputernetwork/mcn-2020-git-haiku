@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
-A water-jewel    
+Bright red pepper-pod    
+to see the moon, whose solemn pace    
+They meet, they mate    
 

@@ -1,4 +1,4 @@
-This is the new line    
-Heron's cry    
-Mogami River.    
+Carven gods long gone    
+Please don't tell my museum    
+Moon-lighted mountains!    
 

@@ -1,4 +1,4 @@
-MCN '20    
-Penetrating the very rock,    
-The sun scatters    
+Poverty's child -    
+the scent of flowers floating    
+Contemptuous of frost    
 

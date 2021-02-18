@@ -1,4 +1,4 @@
-Oh, tranquility!    
-perfumes her wings by floating    
-The sun scatters    
+High up in the trees    
+The fragrant blossoms remain.    
+A solitary bird    
 

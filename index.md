@@ -1,4 +1,4 @@
-In the cicada's cry    
-There's no sign that can foretell    
-Muffled by hot rocks    
+Oh, tranquility!    
+perfumes her wings by floating    
+The sun scatters    
 

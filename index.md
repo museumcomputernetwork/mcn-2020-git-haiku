@@ -1,4 +1,4 @@
-snow falling soon now    
-loneliness? Just one leaf    
-Enjoying the house    
+This is a haiku    
+network is awesome for tea-    
+Moon-lighted mountains!    
 

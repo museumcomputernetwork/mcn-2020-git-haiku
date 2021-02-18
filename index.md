@@ -1,4 +1,4 @@
-In the twilight rain    
-Tiffany Sprague edits books    
-A butterfly floats and balances    
+Silent the old town    
+he starts to grind the rice,    
+How soon it must die.    
 

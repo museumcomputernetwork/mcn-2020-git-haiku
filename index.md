@@ -1,4 +1,4 @@
-Temple bells die out.    
-above white    
-Of warriors’ dreams.    
+The first day of the year:    
+even the crickets' singing    
+Our hungry donkey    
 

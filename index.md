@@ -1,4 +1,4 @@
-The first day of the year:    
-even the crickets' singing    
-Our hungry donkey    
+Now in sad autumn    
+tolling twilight bell; Temple    
+It’s the Doll’s Festival.    
 

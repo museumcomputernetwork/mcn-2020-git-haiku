@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-I must work and attend MCN    
-It’s the Doll’s Festival.    
+None is travelling    
+starving for fat fish or mice    
+Moon-lighted mountains!    
 

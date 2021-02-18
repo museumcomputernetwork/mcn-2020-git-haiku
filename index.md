@@ -1,4 +1,4 @@
-White cloud of mist    
-A frog jumps in -    
-They meet, they mate    
+Lightning -    
+The fragrant blossoms remain.    
+And evening bell    
 

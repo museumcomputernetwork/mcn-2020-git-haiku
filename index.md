@@ -1,4 +1,4 @@
-In the sea-surf edge    
-therefore our thanks dark clouds    
-A perfect evening!    
+This snowy morning    
+these heavy snow-flakes settling    
+About this ignite    
 

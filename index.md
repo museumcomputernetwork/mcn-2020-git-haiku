@@ -1,4 +1,4 @@
-None is travelling    
-perfumes her wings by floating    
-Like Git and haikus!    
+snow falling soon now    
+loneliness? Just one leaf    
+Enjoying the house    
 

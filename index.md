@@ -1,4 +1,4 @@
-Must springtime fade?    
-Twilight whippoorwill, whistle on, sweet deepener    
-cherry-blossoms . . .    
+In the twilight rain    
+Tiffany Sprague edits books    
+A butterfly floats and balances    
 

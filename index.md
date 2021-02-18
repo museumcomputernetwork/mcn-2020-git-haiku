@@ -1,4 +1,4 @@
-Now in sad autumn    
-tolling twilight bell; Temple    
-It’s the Doll’s Festival.    
+White cloud of mist    
+A frog jumps in -    
+They meet, they mate    
 

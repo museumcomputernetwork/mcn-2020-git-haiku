@@ -1,4 +1,4 @@
-This snowy morning    
-these heavy snow-flakes settling    
-About this ignite    
+Must springtime fade?    
+Twilight whippoorwill, whistle on, sweet deepener    
+cherry-blossoms . . .    
 

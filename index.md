@@ -1,4 +1,4 @@
-Must springtime fade?    
-adventure awaits outside    
-About this ignite    
+Seas are wild tonight    
+scatters in the night; Now see    
+It’s the Doll’s Festival.    
 

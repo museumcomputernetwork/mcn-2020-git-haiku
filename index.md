@@ -1,4 +1,4 @@
-Lightning -    
-The fragrant blossoms remain.    
-And evening bell    
+Clouds come from time to time -    
+How swift it is    
+Or backyard love?    
 

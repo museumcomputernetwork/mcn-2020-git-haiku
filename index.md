@@ -1,4 +1,4 @@
-High up in the trees    
-The fragrant blossoms remain.    
-A solitary bird    
+Why so scrawny, cat?    
+I must work and attend MCN    
+It’s the Doll’s Festival.    
 

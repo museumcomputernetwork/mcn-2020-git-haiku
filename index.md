@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-How swift it is    
-Or backyard love?    
+None is travelling    
+perfumes her wings by floating    
+Like Git and haikus!    
 

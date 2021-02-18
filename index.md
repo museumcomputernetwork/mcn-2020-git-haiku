@@ -1,4 +1,4 @@
-None is travelling    
-starving for fat fish or mice    
-Moon-lighted mountains!    
+Temple bells die out.    
+above white    
+Of warriors’ dreams.    
 

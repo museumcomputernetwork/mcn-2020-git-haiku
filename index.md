@@ -1,4 +1,4 @@
-This is a haiku    
+Now that eyes of hawks    
 network is awesome for tea-    
-Moon-lighted mountains!    
+It’s the Doll’s Festival.    
 

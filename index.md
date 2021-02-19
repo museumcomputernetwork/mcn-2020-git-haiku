@@ -1,4 +1,4 @@
-exciting conference day    
-then cry all birds and fishes    
-how interesting    
+None is travelling    
+tolling twilight bell; Temple    
+From the kiri tree.    
 

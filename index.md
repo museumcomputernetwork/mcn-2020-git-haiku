@@ -1,4 +1,4 @@
-Learning something new    
-thoughts come - and there is loneliness;    
-how interesting    
+Ballet in the air    
+Heron's cry    
+A solitary bird    
 

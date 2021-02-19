@@ -1,4 +1,4 @@
-Lightning -    
-Is also changed to another    
-Since there is no rice    
+When you say something,    
+then cry all birds and fishes    
+Among the flowers    
 

@@ -1,4 +1,4 @@
-Indoors wintertime    
-it needs but shiny wings and look    
-Mogami River.    
+Dawn-shining mountains    
+Line that won't be deleted    
+Ueno? Asakura?    
 

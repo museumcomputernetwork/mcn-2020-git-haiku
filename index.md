@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Here along this way but I,    
-The Autumn wind.    
+Silent the old town    
+How swift it is    
+How soon it must die.    
 

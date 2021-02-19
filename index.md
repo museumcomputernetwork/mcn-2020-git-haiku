@@ -1,4 +1,4 @@
-None is travelling    
-There's no sign that can foretell    
-are darkened    
+Temple bells die out.    
+these brilliant-hued hibiscus    
+My moonlit pillow    
 

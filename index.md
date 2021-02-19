@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-The fragrant blossoms remain.    
-A little woven cape    
+None is travelling    
+Here along this way but I,    
+Mogami River.    
 

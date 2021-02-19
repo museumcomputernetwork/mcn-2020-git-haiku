@@ -1,4 +1,4 @@
-Learning something new    
-tolling twilight bell; Temple    
-Crying, whirling, white    
+Seek on high bare trails    
+Heron's cry    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Heron's cry    
-Can she edit this?    
+Silent the old town    
+then cry all birds and fishes    
+On the temple porch    
 

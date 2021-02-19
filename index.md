@@ -1,4 +1,4 @@
-Ballet in the air    
-Heron's cry    
-A solitary bird    
+Indoors wintertime    
+it needs but shiny wings and look    
+Mogami River.    
 

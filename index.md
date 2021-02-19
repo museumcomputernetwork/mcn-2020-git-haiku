@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-who spends his little breakfast    
-Of faded daffodils    
+The river gathering may rains    
+poor monkey, you too could use    
+This autumn evening.    
 

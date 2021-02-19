@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-loneliness? Just one leaf    
-Stabs the darkness    
+Now that eyes of hawks    
+he starts to grind the rice,    
+With tears.    
 

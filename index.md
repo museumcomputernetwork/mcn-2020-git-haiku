@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-oh voices of the wild ducks    
-A solitary bird    
+Bright red pepper-pod    
+loneliness? Just one leaf    
+Stabs the darkness    
 

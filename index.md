@@ -1,4 +1,4 @@
-None is travelling    
-Here along this way but I,    
-Mogami River.    
+Learning something new    
+thoughts come - and there is loneliness;    
+how interesting    
 

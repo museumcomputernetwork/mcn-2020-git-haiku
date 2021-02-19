@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-he starts to grind the rice,    
-With tears.    
+Why so scrawny, cat?    
+The fragrant blossoms remain.    
+A little woven cape    
 

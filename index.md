@@ -1,4 +1,4 @@
-None is travelling    
-tolling twilight bell; Temple    
-From the kiri tree.    
+The first day of the year:    
+There's no sign that can foretell    
+and gazes at the moon.    
 

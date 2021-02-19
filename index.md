@@ -1,4 +1,4 @@
-Silent the old town    
-How swift it is    
-How soon it must die.    
+Seek on high bare trails    
+I must work and attend MCN    
+Among the flowers    
 

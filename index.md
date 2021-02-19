@@ -1,4 +1,4 @@
-Mountain-rose petals    
-as I take my darkening path    
-Seasoned with petals    
+Dry cheerful cricket    
+Here along this way but I,    
+The Autumn wind.    
 

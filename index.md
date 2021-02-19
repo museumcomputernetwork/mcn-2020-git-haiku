@@ -1,4 +1,4 @@
-Temple bells die out.    
-these brilliant-hued hibiscus    
-My moonlit pillow    
+Learning something new    
+tolling twilight bell; Temple    
+Crying, whirling, white    
 

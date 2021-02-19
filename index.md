@@ -1,4 +1,4 @@
-The first day of the year:    
+None is travelling    
 There's no sign that can foretell    
-and gazes at the moon.    
+are darkened    
 

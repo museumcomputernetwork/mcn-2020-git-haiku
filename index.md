@@ -1,4 +1,4 @@
-When you say something,    
-then cry all birds and fishes    
-Among the flowers    
+Now that eyes of hawks    
+who spends his little breakfast    
+Of faded daffodils    
 

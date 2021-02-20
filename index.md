@@ -1,4 +1,4 @@
-Must springtime fade?    
-is quieted with creepers    
-A butterfly floats and balances    
+Lady butterfly    
+just enough to bend the leaves    
+Morning-glory gazing    
 

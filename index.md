@@ -1,4 +1,4 @@
-Lady butterfly    
-just enough to bend the leaves    
-Morning-glory gazing    
+Now in sad autumn    
+Exhausted from video    
+but inside, coffee    
 

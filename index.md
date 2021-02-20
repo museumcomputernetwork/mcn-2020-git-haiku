@@ -1,4 +1,4 @@
-In the twilight rain    
-fell in silent dawn, spilling    
-Lilies on the rocks    
+Oh, tranquility!    
+is quieted with creepers    
+Our hungry donkey    
 

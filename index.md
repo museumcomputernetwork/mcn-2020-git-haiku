@@ -1,4 +1,4 @@
-Spring is passing.    
-here at your flowering grave    
-How soon it must die.    
+The rains of summer join together.    
+starving for fat fish or mice    
+And evening bell    
 

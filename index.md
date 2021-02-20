@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Line that won't be deleted    
-Ueno? Asakura?    
+For a lovely bowl    
+the scent of flowers floating    
+The Autumn wind.    
 

@@ -1,4 +1,4 @@
-Here, where a thousand    
-spare my little buzzing friends    
-Two white butterflies?    
+Must springtime fade?    
+tolling twilight bell; Temple    
+It’s the Doll’s Festival.    
 

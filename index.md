@@ -1,4 +1,4 @@
-For a lovely bowl    
-the scent of flowers floating    
-The Autumn wind.    
+White cloud of mist    
+scatters in the night; Now see    
+Tall grass their monument    
 

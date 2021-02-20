@@ -1,4 +1,4 @@
-The rains of summer join together.    
-in your brief sweet waters    
-A water-jewel    
+Such utter silence!    
+stretching over Sado Island    
+cherry-blossoms . . .    
 

@@ -1,4 +1,4 @@
-This is a haiku    
-even the crickets' singing    
-Contemptuous of frost    
+Glorious the moon    
+who spends his little breakfast    
+A water-jewel    
 

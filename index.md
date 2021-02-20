@@ -1,4 +1,4 @@
-Daylight is here now    
-just enough to bend the leaves    
-Marks only midnight yet    
+Dewdrop, let me cleanse    
+falling, falling, falling now    
+Of warriors’ dreams.    
 

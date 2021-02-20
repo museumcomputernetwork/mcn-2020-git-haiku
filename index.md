@@ -1,4 +1,4 @@
-Won't you come and see    
-that black crow I hate so much    
-Waterfall music    
+This is a haiku    
+even the crickets' singing    
+Contemptuous of frost    
 

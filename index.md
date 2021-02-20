@@ -1,4 +1,4 @@
-Carven gods long gone    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+Daylight is here now    
+just enough to bend the leaves    
+Marks only midnight yet    
 

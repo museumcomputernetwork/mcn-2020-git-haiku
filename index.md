@@ -1,4 +1,4 @@
-Now in sad autumn    
-Exhausted from video    
-but inside, coffee    
+Spring is passing.    
+here at your flowering grave    
+How soon it must die.    
 

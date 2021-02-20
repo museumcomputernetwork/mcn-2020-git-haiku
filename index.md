@@ -1,4 +1,4 @@
-I am at the MCN    
-above white    
-Like our tendrilled life    
+Here, where a thousand    
+spare my little buzzing friends    
+Two white butterflies?    
 

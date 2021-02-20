@@ -1,4 +1,4 @@
-Under cherry-trees    
-How swift it is    
-The Autumn wind.    
+Must springtime fade?    
+is quieted with creepers    
+A butterfly floats and balances    
 

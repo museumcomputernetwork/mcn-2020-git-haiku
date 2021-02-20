@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-falling, falling, falling now    
-Of warriors’ dreams.    
+In the twilight rain    
+fell in silent dawn, spilling    
+Lilies on the rocks    
 

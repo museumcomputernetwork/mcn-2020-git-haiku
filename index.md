@@ -1,4 +1,4 @@
-White cloud of mist    
-twin butterflies until, twice white    
-Seasoned with petals    
+Carven gods long gone    
+thoughts come - and there is loneliness;    
+This autumn evening.    
 

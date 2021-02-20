@@ -1,4 +1,4 @@
-Must springtime fade?    
-tolling twilight bell; Temple    
-It’s the Doll’s Festival.    
+Under cherry-trees    
+How swift it is    
+The Autumn wind.    
 

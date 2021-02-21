@@ -1,4 +1,4 @@
-Chirping of the quails    
-Penetrating the very rock,    
-Mountain-top jewels    
+Too curious flower    
+A frog jumps in -    
+Goes plop! Watersplash!    
 

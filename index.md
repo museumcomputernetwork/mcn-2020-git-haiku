@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-MCN is magical    
-A water-jewel    
+A owner of the old thatched hut    
+spare my little buzzing friends    
+Like our tendrilled life    
 

@@ -1,4 +1,4 @@
-If there were fragrance    
+Chirping of the quails    
 Penetrating the very rock,    
-Marks only midnight yet    
+Mountain-top jewels    
 

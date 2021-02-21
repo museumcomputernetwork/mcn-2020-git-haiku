@@ -1,4 +1,4 @@
-Too curious flower    
-A frog jumps in -    
-Goes plop! Watersplash!    
+The first day of the year:    
+adventure awaits outside    
+are darkened . . .    
 

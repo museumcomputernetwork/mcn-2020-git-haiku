@@ -1,4 +1,4 @@
-Ah me! I am one    
-Heron's cry    
-Basho lines the moon    
+Wake! The sky is light!    
+MCN is magical    
+A water-jewel    
 

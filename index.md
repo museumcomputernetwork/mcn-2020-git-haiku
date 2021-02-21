@@ -1,4 +1,4 @@
-Lightning -    
-network is awesome for tea-    
-Lilies on the rocks    
+This is the new line    
+he starts to grind the rice,    
+Of warriors’ dreams.    
 

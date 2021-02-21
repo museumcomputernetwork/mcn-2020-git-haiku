@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-About this ignite    
+If there were fragrance    
+sky-reflecting violets    
+how interesting    
 

@@ -1,4 +1,4 @@
-If there were fragrance    
-sky-reflecting violets    
-how interesting    
+Ballet in the air    
+visit the ancestral grave    
+from looking at the moon.    
 

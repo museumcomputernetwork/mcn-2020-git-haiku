@@ -1,4 +1,4 @@
-An old pond    
-All that remains    
-This autumn evening.    
+Dry cheerful cricket    
+There's no sign that can foretell    
+With tears.    
 

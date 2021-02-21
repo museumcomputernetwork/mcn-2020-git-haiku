@@ -1,4 +1,4 @@
-No oil to read by    
-watching us pass, met death    
-Merge conflicts haunt me    
+None is travelling    
+thoughts come - and there is loneliness;    
+About this ignite    
 

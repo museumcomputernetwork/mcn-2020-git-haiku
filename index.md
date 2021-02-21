@@ -1,4 +1,4 @@
-Camellia-petal    
-A small weed    
-Mogami River.    
+If there were fragrance    
+Penetrating the very rock,    
+Marks only midnight yet    
 

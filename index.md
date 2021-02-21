@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-There's no sign that can foretell    
-With tears.    
+Now in sad autumn    
+these brilliant-hued hibiscus    
+and gazes at the moon.    
 

@@ -1,4 +1,4 @@
-This is the new line    
+For a lovely bowl    
 he starts to grind the rice,    
-Of warriors’ dreams.    
+And so it must be    
 

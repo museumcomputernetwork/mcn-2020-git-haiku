@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-in dusky night    
-Murmuring Mogami    
+This snowy morning    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 

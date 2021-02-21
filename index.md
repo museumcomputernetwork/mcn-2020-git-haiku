@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-spare my little buzzing friends    
-Like our tendrilled life    
+Black cloudbank broken    
+thoughts come - and there is loneliness;    
+The Autumn wind.    
 

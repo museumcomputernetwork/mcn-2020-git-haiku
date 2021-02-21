@@ -1,4 +1,4 @@
-Ballet in the air    
-visit the ancestral grave    
-from looking at the moon.    
+An old pond    
+All that remains    
+This autumn evening.    
 

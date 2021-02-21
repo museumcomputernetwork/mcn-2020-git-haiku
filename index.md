@@ -1,4 +1,4 @@
-This snowy morning    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+The first day of the year:    
+quick unexpected frog    
+Enjoying the house    
 

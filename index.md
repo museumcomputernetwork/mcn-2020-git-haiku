@@ -1,4 +1,4 @@
-Now in sad autumn    
-these brilliant-hued hibiscus    
-and gazes at the moon.    
+Ah me! I am one    
+Heron's cry    
+Basho lines the moon    
 

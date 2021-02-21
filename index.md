@@ -1,4 +1,4 @@
-The first day of the year:    
-adventure awaits outside    
-are darkened . . .    
+This is a haiku    
+it needs but shiny wings and look    
+from looking at the moon.    
 

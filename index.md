@@ -1,4 +1,4 @@
-Must springtime fade?    
-An herbal tea, sit, listen    
-Of dark loneliness    
+White cloud of mist    
+network is awesome for tea-    
+It’s the Doll’s Festival.    
 

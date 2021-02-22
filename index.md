@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-captains swore grand conquest    
-CHI turns seventeen    
+Clouds come from time to time -    
+above white    
+Since there is no rice    
 

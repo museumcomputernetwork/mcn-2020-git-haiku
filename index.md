@@ -1,4 +1,4 @@
-Love GitHub a lot    
-these brilliant-hued hibiscus    
-to read while you wait    
+Ah me! I am one    
+and bring to men a chance to rest    
+Bearded, with bent canes    
 

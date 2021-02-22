@@ -1,4 +1,4 @@
-Such utter silence!    
+MCN day 5 -    
 April's air stirs in willow-leaves    
-Of warriors’ dreams.    
+Since there is no rice    
 

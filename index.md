@@ -1,4 +1,4 @@
-Cold first winter rain    
-All that remains    
-Morning-glory gazing    
+The river gathering may rains    
+Tiffany Sprague edits books    
+Bearded, with bent canes    
 

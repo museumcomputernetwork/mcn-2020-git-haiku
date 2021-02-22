@@ -1,4 +1,4 @@
-The sea darkening    
-tolling twilight bell; Temple    
-They meet, they mate    
+In the cicada's cry    
+An herbal tea, sit, listen    
+How soon it must die.    
 

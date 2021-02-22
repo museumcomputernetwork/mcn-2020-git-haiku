@@ -1,4 +1,4 @@
-The river gathering may rains    
-Tiffany Sprague edits books    
-Bearded, with bent canes    
+White cloud of mist    
+therefore our thanks dark clouds    
+Tall grass their monument    
 

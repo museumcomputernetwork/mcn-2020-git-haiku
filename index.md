@@ -1,4 +1,4 @@
-If there were fragrance    
-to see the moon, whose solemn pace    
-Come to rest our necks    
+Won't you come and see    
+We can learn so many things,    
+A cicada’s voice.    
 

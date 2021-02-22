@@ -1,4 +1,4 @@
-White cloud of mist    
-network is awesome for tea-    
-It’s the Doll’s Festival.    
+Temple bells die out.    
+We can learn so many things,    
+but inside, coffee    
 

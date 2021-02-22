@@ -1,4 +1,4 @@
-Ah me! I am one    
-and bring to men a chance to rest    
-Bearded, with bent canes    
+In the cicada's cry    
+perfumes her wings by floating    
+Enjoying the house    
 

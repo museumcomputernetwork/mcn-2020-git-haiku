@@ -1,4 +1,4 @@
-For a lovely bowl    
-he starts to grind the rice,    
-And so it must be    
+Dawn-shining mountains    
+not even a magazine    
+And evening bell    
 

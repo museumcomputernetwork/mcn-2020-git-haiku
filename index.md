@@ -1,4 +1,4 @@
-MCN day 5 -    
-April's air stirs in willow-leaves    
-Since there is no rice    
+Now that eyes of hawks    
+captains swore grand conquest    
+CHI turns seventeen    
 

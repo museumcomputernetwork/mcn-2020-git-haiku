@@ -1,4 +1,4 @@
-Won't you come and see    
-We can learn so many things,    
-A cicada’s voice.    
+The sea darkening    
+tolling twilight bell; Temple    
+They meet, they mate    
 

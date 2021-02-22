@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-not even a magazine    
-And evening bell    
+Must springtime fade?    
+An herbal tea, sit, listen    
+Of dark loneliness    
 

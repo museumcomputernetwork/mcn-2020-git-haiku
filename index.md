@@ -1,4 +1,4 @@
-MCN '20    
-All that remains    
-These dark hands of life    
+Love GitHub a lot    
+these brilliant-hued hibiscus    
+to read while you wait    
 

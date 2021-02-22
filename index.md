@@ -1,4 +1,4 @@
-White cloud of mist    
-therefore our thanks dark clouds    
-Tall grass their monument    
+Such utter silence!    
+April's air stirs in willow-leaves    
+Of warriors’ dreams.    
 

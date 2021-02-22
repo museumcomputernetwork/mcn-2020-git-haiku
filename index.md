@@ -1,4 +1,4 @@
-Oh, tranquility!    
-here at your flowering grave    
-Cold pale eyes pour tears    
+Spring is passing.    
+I must work and attend MCN    
+Come to rest our necks    
 

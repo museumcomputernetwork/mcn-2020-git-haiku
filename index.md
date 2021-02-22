@@ -1,4 +1,4 @@
-In the cicada's cry    
-perfumes her wings by floating    
-Enjoying the house    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+Moon-lighted mountains!    
 

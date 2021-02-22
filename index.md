@@ -1,4 +1,4 @@
-In the cicada's cry    
-An herbal tea, sit, listen    
-How soon it must die.    
+Oh, tranquility!    
+here at your flowering grave    
+Cold pale eyes pour tears    
 

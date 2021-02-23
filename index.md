@@ -1,4 +1,4 @@
-Here, where a thousand    
-How swift it is    
-Of faded daffodils    
+The river gathering may rains    
+Penetrating the very rock,    
+Two white butterflies?    
 

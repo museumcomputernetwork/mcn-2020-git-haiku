@@ -1,4 +1,4 @@
-Temple bells die out.    
-The fragrant blossoms remain.    
-A lovely sunset    
+Here, where a thousand    
+How swift it is    
+Of faded daffodils    
 

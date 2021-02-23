@@ -1,4 +1,4 @@
-Carven gods long gone    
-Penetrating the very rock,    
-Contemptuous of frost    
+Spring is passing.    
+fell in silent dawn, spilling    
+Enjoying the house    
 

@@ -1,4 +1,4 @@
-Such utter silence!    
-Is also changed to another    
-are darkened    
+White cloud of mist    
+All that remains    
+Waterfall music    
 

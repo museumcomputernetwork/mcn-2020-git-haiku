@@ -1,4 +1,4 @@
-Lightning -    
-An herbal tea, sit, listen    
-Of dark loneliness    
+See: surviving suns    
+A small weed    
+On the temple porch    
 

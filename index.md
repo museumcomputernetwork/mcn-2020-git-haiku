@@ -1,4 +1,4 @@
-Daylight is here now    
-A small weed    
-Can she edit this?    
+Now in sad autumn    
+and bring to men a chance to rest    
+A perfect evening!    
 

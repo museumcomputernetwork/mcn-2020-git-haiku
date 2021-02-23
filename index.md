@@ -1,4 +1,4 @@
-Now in sad autumn    
-visit the ancestral grave    
-Splash!    
+Camellia-petal    
+he starts to grind the rice,    
+Mogami River.    
 

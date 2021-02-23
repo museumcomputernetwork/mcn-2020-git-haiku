@@ -1,4 +1,4 @@
-First white snow of fall    
-in your brief sweet waters    
-are darkened    
+Daylight is here now    
+A small weed    
+Can she edit this?    
 

@@ -1,4 +1,4 @@
-Camellia-petal    
-he starts to grind the rice,    
-Mogami River.    
+Temple bells die out.    
+The fragrant blossoms remain.    
+A lovely sunset    
 

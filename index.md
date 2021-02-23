@@ -1,4 +1,4 @@
-Now in sad autumn    
-the scent of flowers floating    
-Stabs the darkness    
+First white snow of fall    
+in your brief sweet waters    
+are darkened    
 

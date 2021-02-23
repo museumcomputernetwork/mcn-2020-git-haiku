@@ -1,4 +1,4 @@
-The river gathering may rains    
-Penetrating the very rock,    
-Two white butterflies?    
+This is the new line    
+twin butterflies until, twice white    
+from looking at the moon.    
 

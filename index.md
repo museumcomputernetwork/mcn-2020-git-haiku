@@ -1,4 +1,4 @@
-This is the new line    
-twin butterflies until, twice white    
-from looking at the moon.    
+Indoors wintertime    
+sky-reflecting violets    
+How soon it must die.    
 

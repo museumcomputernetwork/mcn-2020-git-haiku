@@ -1,4 +1,4 @@
-Nine times arising    
+Ah me! I am one    
 here at your flowering grave    
-Contemptuous of frost    
+A butterfly floats and balances    
 

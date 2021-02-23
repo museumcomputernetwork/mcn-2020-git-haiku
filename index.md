@@ -1,4 +1,4 @@
-Indoors wintertime    
-like ripple on the water    
-Mountain-top jewels    
+Such utter silence!    
+Is also changed to another    
+are darkened    
 

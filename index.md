@@ -1,4 +1,4 @@
-MCN '20    
-quick unexpected frog    
-Merge conflicts haunt me    
+Temple bells die out.    
+Line that won't be deleted    
+Of warriors’ dreams.    
 

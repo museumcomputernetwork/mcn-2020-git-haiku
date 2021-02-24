@@ -1,4 +1,4 @@
-Under cherry-trees    
-chirping, keeps the autumn gay    
-Companion butterfly!    
+See: surviving suns    
+poor monkey, you too could use    
+This autumn evening.    
 

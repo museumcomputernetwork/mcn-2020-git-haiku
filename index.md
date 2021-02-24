@@ -1,4 +1,4 @@
-Ah me! I am one    
-Here along this way but I,    
-are darkened . . .    
+Under cherry-trees    
+chirping, keeps the autumn gay    
+Companion butterfly!    
 

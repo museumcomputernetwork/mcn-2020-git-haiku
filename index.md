@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Our hungry donkey    
+If there were fragrance    
+stretching over Sado Island    
+Cold pale eyes pour tears    
 

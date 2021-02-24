@@ -1,4 +1,4 @@
-White cloud of mist    
-I am off to bed - but ah!    
-Like our tendrilled life    
+None is travelling    
+to see the moon, whose solemn pace    
+Mountain-top jewels    
 

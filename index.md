@@ -1,4 +1,4 @@
-If there were fragrance    
-stretching over Sado Island    
-Cold pale eyes pour tears    
+White cloud of mist    
+from cold streamlets for the sea    
+Enjoying the house    
 

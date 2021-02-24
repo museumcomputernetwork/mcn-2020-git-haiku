@@ -1,4 +1,4 @@
-the zoom waiting room    
-tolling twilight bell; Temple    
-Like our tendrilled life    
+Spring is passing.    
+falling, falling, falling now    
+About this ignite    
 

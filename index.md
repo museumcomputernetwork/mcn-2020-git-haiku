@@ -1,4 +1,4 @@
-None is travelling    
-to see the moon, whose solemn pace    
-Mountain-top jewels    
+Under cherry-trees    
+watching us pass, met death    
+Basho lines the moon    
 

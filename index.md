@@ -1,4 +1,4 @@
-Temple bells die out.    
-Line that won't be deleted    
-Of warriors’ dreams.    
+Ah me! I am one    
+Here along this way but I,    
+are darkened . . .    
 

@@ -1,4 +1,4 @@
-This snowy morning    
-creating git hub hides    
-the autumn dusk is here.    
+Cloud of cherry-bloom    
+A small weed    
+email confirmation demands met    
 

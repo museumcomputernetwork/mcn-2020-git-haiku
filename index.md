@@ -1,4 +1,4 @@
-White cloud of mist    
-from cold streamlets for the sea    
-Enjoying the house    
+This snowy morning    
+creating git hub hides    
+the autumn dusk is here.    
 

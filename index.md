@@ -1,4 +1,4 @@
-The summer grasses.    
-The fragrant blossoms remain.    
-Among the flowers    
+the zoom waiting room    
+tolling twilight bell; Temple    
+Like our tendrilled life    
 

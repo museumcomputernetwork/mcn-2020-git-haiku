@@ -1,4 +1,4 @@
-The rains of summer join together.    
-loneliness? Just one leaf    
-From the kiri tree.    
+I am at the MCN    
+in dusky night    
+Mountain-top jewels    
 

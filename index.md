@@ -1,4 +1,4 @@
-Under cherry-trees    
-watching us pass, met death    
-Basho lines the moon    
+White cloud of mist    
+tolling twilight bell; Temple    
+Seasoned with petals    
 

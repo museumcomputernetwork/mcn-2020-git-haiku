@@ -1,4 +1,4 @@
-Ah me! I am one    
-tolling twilight bell; Temple    
-Marks only midnight yet    
+No oil to read by    
+let us arrange these flowers    
+but inside, coffee    
 

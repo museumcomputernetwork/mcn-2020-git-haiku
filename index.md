@@ -1,4 +1,4 @@
-No oil to read by    
-let us arrange these flowers    
-but inside, coffee    
+White cloud of mist    
+I am off to bed - but ah!    
+Like our tendrilled life    
 

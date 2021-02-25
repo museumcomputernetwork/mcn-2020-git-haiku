@@ -1,4 +1,4 @@
-Love GitHub a lot    
-then cry all birds and fishes    
-Moon-lighted mountains!    
+This snowy morning    
+An herbal tea, sit, listen    
+the autumn dusk is here.    
 

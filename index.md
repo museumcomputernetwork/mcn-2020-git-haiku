@@ -1,4 +1,4 @@
-Cold first winter rain    
-watching us pass, met death    
-Cherry-blossoms    
+Dry cheerful cricket    
+loneliness? Just one leaf    
+Darting dragon-fly!    
 

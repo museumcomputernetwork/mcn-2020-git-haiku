@@ -1,4 +1,4 @@
-Silent the old town    
-I must work and attend MCN    
-Silent clouds of stars    
+The first day of the year:    
+spare my little buzzing friends    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-First white snow of fall    
-Penetrating the very rock,    
-A perfect evening!    
+Clouds come from time to time -    
+loneliness? Just one leaf    
+how interesting    
 

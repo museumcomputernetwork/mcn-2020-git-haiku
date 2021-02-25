@@ -1,4 +1,4 @@
-This snowy morning    
-An herbal tea, sit, listen    
-the autumn dusk is here.    
+Carven gods long gone    
+these brilliant-hued hibiscus    
+Murmuring Mogami    
 

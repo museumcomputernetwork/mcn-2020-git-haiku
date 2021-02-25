@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-above white    
-The autumn dusk is here.    
+Glorious the moon    
+Please don't tell my museum    
+Our hungry donkey    
 

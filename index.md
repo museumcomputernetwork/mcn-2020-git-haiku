@@ -1,4 +1,4 @@
-The river gathering may rains    
-The birds cry, and the fishes’ eyes are     
-And evening bell    
+Silent the old town    
+just enough to bend the leaves    
+Muffled by hot rocks    
 

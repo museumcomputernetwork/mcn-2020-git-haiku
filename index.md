@@ -1,4 +1,4 @@
-The first day of the year:    
-The fragrant blossoms remain.    
-Like our tendrilled life    
+First white snow of fall    
+Penetrating the very rock,    
+A perfect evening!    
 

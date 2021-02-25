@@ -1,4 +1,4 @@
-MCN '20    
-April's air stirs in willow-leaves    
-Ueno? Asakura?    
+Cold first winter rain    
+watching us pass, met death    
+Cherry-blossoms    
 

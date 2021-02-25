@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-loneliness? Just one leaf    
-how interesting    
+Silent the old town    
+I must work and attend MCN    
+Silent clouds of stars    
 

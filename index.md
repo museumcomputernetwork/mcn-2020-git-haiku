@@ -1,4 +1,4 @@
-Love GitHub a lot    
-loneliness? Just one leaf    
-Mogami River.    
+In the sea-surf edge    
+Is also changed to another    
+Two white butterflies?    
 

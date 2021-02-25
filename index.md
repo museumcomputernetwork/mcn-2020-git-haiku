@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Is also changed to another    
-Two white butterflies?    
+MCN '20    
+April's air stirs in willow-leaves    
+Ueno? Asakura?    
 

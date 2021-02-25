@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-creating git hub hides    
-are darkened    
+White cloud of mist    
+not even a magazine    
+My moonlit pillow    
 

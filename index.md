@@ -1,4 +1,4 @@
-Silent the old town    
-just enough to bend the leaves    
-Muffled by hot rocks    
+Swallow in the dusk    
+How swift it is    
+A butterfly floats and balances    
 

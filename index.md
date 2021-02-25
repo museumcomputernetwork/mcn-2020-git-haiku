@@ -1,4 +1,4 @@
-Lightning -    
-starving for fat fish or mice    
-Of warriors’ dreams.    
+In the twilight rain    
+The lips feel cold.    
+Like our tendrilled life    
 

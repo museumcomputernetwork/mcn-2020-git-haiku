@@ -1,4 +1,4 @@
-The first day of the year:    
-spare my little buzzing friends    
-Stabs the darkness    
+The river gathering may rains    
+The birds cry, and the fishes’ eyes are     
+And evening bell    
 

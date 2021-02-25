@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-loneliness? Just one leaf    
-Darting dragon-fly!    
+Lightning -    
+starving for fat fish or mice    
+Of warriors’ dreams.    
 

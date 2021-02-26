@@ -1,4 +1,4 @@
-Ah me! I am one    
-starving for fat fish or mice    
-These dark hands of life    
+Lightning -    
+from cold streamlets for the sea    
+-ching me new tech skills!    
 

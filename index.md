@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Here along this way but I,    
-The autumn dusk is here.    
+First white snow of fall    
+thoughts come - and there is loneliness;    
+Of warriors’ dreams.    
 

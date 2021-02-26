@@ -1,4 +1,4 @@
-In the sea-surf edge    
-starving for fat fish or mice    
-A solitary bird    
+Mountain-rose petals    
+stretching over Sado Island    
+Or backyard love?    
 

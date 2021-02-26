@@ -1,4 +1,4 @@
-Mountain-rose petals    
-stretching over Sado Island    
-Or backyard love?    
+Oh, tranquility!    
+here at your flowering grave    
+About this ignite    
 

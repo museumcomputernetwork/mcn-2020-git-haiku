@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-visit the ancestral grave    
-from the kiri tree.    
+High up in the trees    
+Line that won't be deleted    
+Seasoned with petals    
 

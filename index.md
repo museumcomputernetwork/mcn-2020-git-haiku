@@ -1,4 +1,4 @@
-Silent the old town    
+Poverty's child -    
 I must work and attend MCN    
-A cicada’s voice.    
+The Autumn wind.    
 

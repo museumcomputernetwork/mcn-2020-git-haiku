@@ -1,4 +1,4 @@
-MCN day 5 -    
-The birds cry, and the fishes’ eyes are     
-A little woven cape    
+MCN '20    
+he starts to grind the rice,    
+Thanks for the knowledge    
 

@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-not even a magazine    
+The summer grasses.    
+A frog jumps in -    
 Murmuring Mogami    
 

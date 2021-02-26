@@ -1,4 +1,4 @@
-High up in the trees    
-Not always easy to use    
-but inside, coffee    
+Poverty's child -    
+quick unexpected frog    
+Come to rest our necks    
 

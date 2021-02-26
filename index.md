@@ -1,4 +1,4 @@
-White cloud of mist    
-not even a magazine    
-My moonlit pillow    
+MCN day 5 -    
+The birds cry, and the fishes’ eyes are     
+A little woven cape    
 

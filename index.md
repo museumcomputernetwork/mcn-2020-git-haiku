@@ -1,4 +1,4 @@
-White cloud of mist    
-oh voices of the wild ducks    
-the autumn dusk is here.    
+When you say something,    
+poor monkey, you too could use    
+how interesting    
 

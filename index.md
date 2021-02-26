@@ -1,4 +1,4 @@
-Poverty's child -    
-quick unexpected frog    
-Come to rest our necks    
+Clouds come from time to time -    
+not even a magazine    
+Murmuring Mogami    
 

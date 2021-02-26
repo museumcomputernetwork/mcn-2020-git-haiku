@@ -1,4 +1,4 @@
 MCN '20    
-he starts to grind the rice,    
-Thanks for the knowledge    
+here at your flowering grave    
+-ching me new tech skills!    
 

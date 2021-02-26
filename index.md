@@ -1,4 +1,4 @@
-High up in the trees    
-Line that won't be deleted    
-Seasoned with petals    
+White cloud of mist    
+oh voices of the wild ducks    
+the autumn dusk is here.    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-to see the moon, whose solemn pace    
-This autumn evening.    
+Silent the old town    
+I must work and attend MCN    
+A cicada’s voice.    
 

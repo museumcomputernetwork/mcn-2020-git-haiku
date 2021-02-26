@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
--ching me new tech skills!    
+In the sea-surf edge    
+starving for fat fish or mice    
+A solitary bird    
 

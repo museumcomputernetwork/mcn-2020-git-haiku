@@ -1,4 +1,4 @@
-Oh, tranquility!    
-here at your flowering grave    
-About this ignite    
+High up in the trees    
+Not always easy to use    
+but inside, coffee    
 

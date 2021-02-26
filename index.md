@@ -1,4 +1,4 @@
-The summer grasses.    
-soup, the salad, fish and all    
-I need a coffee    
+Dry cheerful cricket    
+visit the ancestral grave    
+from the kiri tree.    
 

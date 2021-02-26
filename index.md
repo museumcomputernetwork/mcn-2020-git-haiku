@@ -1,4 +1,4 @@
-Poverty's child -    
-I must work and attend MCN    
-The Autumn wind.    
+Ah me! I am one    
+starving for fat fish or mice    
+These dark hands of life    
 

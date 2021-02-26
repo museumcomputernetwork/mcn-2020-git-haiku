@@ -1,4 +1,4 @@
-Lightning -    
-from cold streamlets for the sea    
--ching me new tech skills!    
+Spring is passing.    
+Exhausted from video    
+This autumn evening.    
 

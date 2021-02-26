@@ -1,4 +1,4 @@
 The summer grasses.    
-A frog jumps in -    
-Murmuring Mogami    
+to see the moon, whose solemn pace    
+This autumn evening.    
 

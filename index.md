@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-let us to the road again    
+Spring is passing.    
+Twilight whippoorwill, whistle on, sweet deepener    
 A perfect evening!    
 

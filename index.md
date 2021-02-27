@@ -1,4 +1,4 @@
-Poverty's child -    
-There's no sign that can foretell    
-Bearded, with bent canes    
+Bright red pepper-pod    
+let us to the road again    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-First white snow of fall    
-All that remains    
-and gazes at the moon.    
+snow falling soon now    
+sky-reflecting violets    
+Stabs the darkness    
 

@@ -1,4 +1,4 @@
-The sea darkening    
-the scent of flowers floating    
-from looking at the moon.    
+The first day of the year:    
+Is also changed to another    
+A cicada’s voice.    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
+The rains of summer join together.    
 Twilight whippoorwill, whistle on, sweet deepener    
-Bush-clover petals    
+Silent clouds of stars    
 

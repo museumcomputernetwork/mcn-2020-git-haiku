@@ -1,4 +1,4 @@
-Cold first winter rain    
-just enough to bend the leaves    
-how interesting    
+snow falling soon now    
+Not always easy to use    
+Of faded daffodils    
 

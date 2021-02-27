@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Twilight whippoorwill, whistle on, sweet deepener    
-Silent clouds of stars    
+Cold first winter rain    
+just enough to bend the leaves    
+how interesting    
 

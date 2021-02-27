@@ -1,4 +1,4 @@
-Oh, tranquility!    
-quick unexpected frog    
-Moon-lighted mountains!    
+Lady butterfly    
+as I take my darkening path    
+are darkened . . .    
 

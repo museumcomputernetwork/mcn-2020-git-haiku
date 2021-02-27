@@ -1,4 +1,4 @@
-The rains of summer join together.    
-All that remains    
-how interesting    
+Poverty's child -    
+There's no sign that can foretell    
+Bearded, with bent canes    
 

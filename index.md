@@ -1,4 +1,4 @@
-Cold first winter rain    
-tolling twilight bell; Temple    
-Over the orchid    
+Ah me! I am one    
+perfumes her wings by floating    
+Lilies on the rocks    
 

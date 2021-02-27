@@ -1,4 +1,4 @@
-Black cloudbank broken    
-There's no sign that can foretell    
-And so it must be    
+Oh, tranquility!    
+in your brief sweet waters    
+Enjoying the house    
 

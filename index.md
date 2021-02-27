@@ -1,4 +1,4 @@
-First white snow of fall    
-thoughts come - and there is loneliness;    
-Of warriors’ dreams.    
+The first day of the year:    
+chirping, keeps the autumn gay    
+Can she edit this?    
 

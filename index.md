@@ -1,4 +1,4 @@
-The first day of the year:    
-captains swore grand conquest    
-With tears.    
+For a lovely bowl    
+oh voices of the wild ducks    
+On the temple porch    
 

@@ -1,4 +1,4 @@
-The first day of the year:    
-captains swore grand conquest    
-A butterfly floats and balances    
+The summer grasses.    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bush-clover petals    
 

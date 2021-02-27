@@ -1,4 +1,4 @@
-Spring is passing.    
-Twilight whippoorwill, whistle on, sweet deepener    
-A perfect evening!    
+The rains of summer join together.    
+A frog jumps in -    
+But he's beautiful!    
 

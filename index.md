@@ -1,4 +1,4 @@
-The first day of the year:    
-chirping, keeps the autumn gay    
-Can she edit this?    
+The sea darkening    
+the scent of flowers floating    
+from looking at the moon.    
 

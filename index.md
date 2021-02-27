@@ -1,4 +1,4 @@
-Oh, tranquility!    
-in your brief sweet waters    
-Enjoying the house    
+The rains of summer join together.    
+All that remains    
+how interesting    
 

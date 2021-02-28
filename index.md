@@ -1,4 +1,4 @@
-Temple bells die out.    
-in dusky night    
-This autumn evening.    
+Lady butterfly    
+There's no sign that can foretell    
+A cicada’s voice.    
 

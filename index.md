@@ -1,4 +1,4 @@
-This is a haiku    
-The birds cry, and the fishes’ eyes are     
--ching me new tech skills!    
+Black cloudbank broken    
+Twilight whippoorwill, whistle on, sweet deepener    
+My moonlit pillow    
 

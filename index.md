@@ -1,4 +1,4 @@
-Lightning -    
-I must work and attend MCN    
-Muffled by hot rocks    
+An old pond    
+Penetrating the very rock,    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Is also changed to another    
-A perfect evening!    
+Dawn-shining mountains    
+I must work and attend MCN    
+Basho lines the moon    
 

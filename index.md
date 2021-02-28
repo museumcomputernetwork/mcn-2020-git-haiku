@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-A small weed    
-I need a coffee    
+Cold first winter rain    
+An herbal tea, sit, listen    
+Moon-lighted mountains!    
 

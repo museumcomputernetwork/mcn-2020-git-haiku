@@ -1,4 +1,4 @@
-Cold first winter rain    
-An herbal tea, sit, listen    
-Moon-lighted mountains!    
+Lightning -    
+I must work and attend MCN    
+Muffled by hot rocks    
 

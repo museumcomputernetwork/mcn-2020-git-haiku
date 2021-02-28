@@ -1,4 +1,4 @@
-The first day of the year:    
-let us to the road again    
-Ueno? Asakura?    
+Why so scrawny, cat?    
+loneliness? Just one leaf    
+How soon it must die.    
 

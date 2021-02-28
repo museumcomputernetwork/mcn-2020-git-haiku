@@ -1,4 +1,4 @@
-Nine times arising    
-There's no sign that can foretell    
-Our hungry donkey    
+The first day of the year:    
+let us to the road again    
+Ueno? Asakura?    
 

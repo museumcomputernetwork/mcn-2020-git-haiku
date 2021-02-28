@@ -1,4 +1,4 @@
-Poverty's child -    
-perfumes her wings by floating    
-Muffled by hot rocks    
+An old pond    
+adventure awaits outside    
+Marks only midnight yet    
 

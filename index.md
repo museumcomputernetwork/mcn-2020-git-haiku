@@ -1,4 +1,4 @@
-The summer grasses.    
-How swift it is    
-My moonlit pillow    
+Nine times arising    
+There's no sign that can foretell    
+Our hungry donkey    
 

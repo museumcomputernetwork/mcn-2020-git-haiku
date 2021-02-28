@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-I must work and attend MCN    
-Basho lines the moon    
+White cloud of mist    
+stretching over Sado Island    
+A solitary bird    
 

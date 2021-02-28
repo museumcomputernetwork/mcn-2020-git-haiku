@@ -1,4 +1,4 @@
-museum computer    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+Why so scrawny, cat?    
+A small weed    
+I need a coffee    
 

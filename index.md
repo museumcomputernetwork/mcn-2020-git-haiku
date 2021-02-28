@@ -1,4 +1,4 @@
-White cloud of mist    
-stretching over Sado Island    
-A solitary bird    
+Now that eyes of hawks    
+sky-reflecting violets    
+This autumn evening.    
 

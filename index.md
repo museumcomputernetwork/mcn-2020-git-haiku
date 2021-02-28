@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Twilight whippoorwill, whistle on, sweet deepener    
-My moonlit pillow    
+Won't you come and see    
+The birds cry, and the fishes’ eyes are     
+How soon it must die.    
 

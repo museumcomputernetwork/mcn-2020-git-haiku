@@ -1,4 +1,4 @@
-Mountain-rose petals    
-An herbal tea, sit, listen    
-but inside, coffee    
+Poverty's child -    
+perfumes her wings by floating    
+Muffled by hot rocks    
 

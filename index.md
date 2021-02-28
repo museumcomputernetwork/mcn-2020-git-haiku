@@ -1,4 +1,4 @@
-Learning something new    
-adventure awaits outside    
-And so it must be    
+The summer grasses.    
+How swift it is    
+My moonlit pillow    
 

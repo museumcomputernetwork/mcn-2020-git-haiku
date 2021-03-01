@@ -1,4 +1,4 @@
-Oh, tranquility!    
-above white    
-Crying, whirling, white    
+Ah me! I am one    
+How swift it is    
+The Autumn wind.    
 

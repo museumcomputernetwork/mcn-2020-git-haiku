@@ -1,4 +1,4 @@
-Oh, tranquility!    
-from cold streamlets for the sea    
-Ueno? Asakura?    
+High up in the trees    
+like ripple on the water    
+Goes plop! Watersplash!    
 

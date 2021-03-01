@@ -1,4 +1,4 @@
-snow falling soon now    
-here at your flowering grave    
-Mogami River.    
+If there were fragrance    
+mingling with bright small shells    
+and gazes at the moon.    
 

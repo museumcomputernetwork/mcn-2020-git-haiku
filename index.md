@@ -1,4 +1,4 @@
-Ah me! I am one    
-How swift it is    
-The Autumn wind.    
+A owner of the old thatched hut    
+Heron's cry    
+cherry-blossoms . . .    
 

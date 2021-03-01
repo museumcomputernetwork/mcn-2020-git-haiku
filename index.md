@@ -1,4 +1,4 @@
 Spring is passing.    
-here at your flowering grave    
+Please don't tell my museum    
 Splash!    
 

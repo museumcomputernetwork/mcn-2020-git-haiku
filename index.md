@@ -1,4 +1,4 @@
-For a lovely bowl    
-Penetrating the very rock,    
-from the kiri tree.    
+Oh, tranquility!    
+from cold streamlets for the sea    
+Ueno? Asakura?    
 

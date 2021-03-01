@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-but inside, coffee    
+No oil to read by    
+the scent of flowers floating    
+how interesting    
 

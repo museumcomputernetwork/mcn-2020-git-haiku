@@ -1,4 +1,4 @@
-Lady butterfly    
-Is also changed to another    
-but inside, coffee    
+Ballet in the air    
+in dusky night    
+The sun scatters    
 

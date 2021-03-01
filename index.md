@@ -1,4 +1,4 @@
-Spring is passing.    
-Please don't tell my museum    
-Splash!    
+Ballet in the air    
+fell in silent dawn, spilling    
+Bush-clover petals    
 

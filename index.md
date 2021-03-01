@@ -1,4 +1,4 @@
-I am at the MCN    
-that black crow I hate so much    
-With tears.    
+In the cicada's cry    
+as I take my darkening path    
+On the temple porch    
 

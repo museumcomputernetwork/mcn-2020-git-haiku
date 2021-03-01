@@ -1,4 +1,4 @@
-High up in the trees    
-like ripple on the water    
-Goes plop! Watersplash!    
+snow falling soon now    
+here at your flowering grave    
+Mogami River.    
 

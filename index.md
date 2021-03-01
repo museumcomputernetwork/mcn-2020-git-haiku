@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-How swift it is    
-Come to rest our necks    
+For a lovely bowl    
+Penetrating the very rock,    
+from the kiri tree.    
 

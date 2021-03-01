@@ -1,4 +1,4 @@
-Won't you come and see    
-The birds cry, and the fishes’ eyes are     
-How soon it must die.    
+Old dark sleepy pool    
+How swift it is    
+Come to rest our necks    
 

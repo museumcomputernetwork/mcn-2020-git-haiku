@@ -1,4 +1,4 @@
-Ballet in the air    
-in dusky night    
-The sun scatters    
+This snowy morning    
+The fragrant blossoms remain.    
+Companion butterfly!    
 

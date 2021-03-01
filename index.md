@@ -1,4 +1,4 @@
-If there were fragrance    
-mingling with bright small shells    
-and gazes at the moon.    
+Seas are wild tonight    
+A small weed    
+CHI turns seventeen    
 

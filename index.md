@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-cherry-blossoms . . .    
+I am at the MCN    
+that black crow I hate so much    
+With tears.    
 

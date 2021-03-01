@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-is quieted with creepers    
-Or backyard love?    
+Temple bells die out.    
+stretching over Sado Island    
+but inside, coffee    
 

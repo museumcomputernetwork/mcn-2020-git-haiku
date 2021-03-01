@@ -1,4 +1,4 @@
-Ballet in the air    
-fell in silent dawn, spilling    
-Bush-clover petals    
+Lady butterfly    
+Is also changed to another    
+but inside, coffee    
 

@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-A water-jewel    
+This is a haiku    
+he starts to grind the rice,    
+This autumn evening.    
 

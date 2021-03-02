@@ -1,4 +1,4 @@
-The summer grasses.    
-I am off to bed - but ah!    
-and gazes at the moon.    
+The river gathering may rains    
+scatters in the night; Now see    
+I need a coffee    
 

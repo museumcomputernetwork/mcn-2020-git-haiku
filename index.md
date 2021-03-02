@@ -1,4 +1,4 @@
-The river gathering may rains    
-creating git hub hides    
-Mogami River.    
+The summer grasses.    
+mingling with bright small shells    
+A solitary bird    
 

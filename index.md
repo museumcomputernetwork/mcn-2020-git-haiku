@@ -1,4 +1,4 @@
-An old pond    
-and bring to men a chance to rest    
-Waterfall music    
+The sea darkening    
+like ripple on the water    
+A lovely sunset    
 

@@ -1,4 +1,4 @@
-Ballet in the air    
-All that remains    
-It’s the Doll’s Festival.    
+Dawn-shining mountains    
+it needs but shiny wings and look    
+A solitary bird    
 

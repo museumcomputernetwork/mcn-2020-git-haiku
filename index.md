@@ -1,4 +1,4 @@
-MCN '20    
-adventure awaits outside    
-A little woven cape    
+Cloud of cherry-bloom    
+in your brief sweet waters    
+Splash!    
 

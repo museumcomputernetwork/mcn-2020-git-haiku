@@ -1,4 +1,4 @@
-This is a haiku    
-A frog jumps in -    
-On the temple porch    
+A owner of the old thatched hut    
+network is awesome for tea-    
+Over the orchid    
 

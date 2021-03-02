@@ -1,4 +1,4 @@
-The summer grasses.    
-mingling with bright small shells    
-A solitary bird    
+High up in the trees    
+There's no sign that can foretell    
+Two white butterflies?    
 

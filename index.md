@@ -1,4 +1,4 @@
-MCN '20    
-i understand github now    
-Bearded, with bent canes    
+In the cicada's cry    
+The fragrant blossoms remain.    
+Darting dragon-fly!    
 

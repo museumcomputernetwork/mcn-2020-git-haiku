@@ -1,4 +1,4 @@
-This is a haiku    
-he starts to grind the rice,    
-This autumn evening.    
+Clouds come from time to time -    
+All that remains    
+and gazes at the moon.    
 

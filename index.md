@@ -1,4 +1,4 @@
-The sea darkening    
-like ripple on the water    
-A lovely sunset    
+MCN '20    
+adventure awaits outside    
+A little woven cape    
 

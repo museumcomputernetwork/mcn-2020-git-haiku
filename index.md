@@ -1,4 +1,4 @@
-The first day of the year:    
-Here along this way but I,    
-Basho lines the moon    
+Clouds come from time to time -    
+that black crow I hate so much    
+These dark hands of life    
 

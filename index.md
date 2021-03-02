@@ -1,4 +1,4 @@
-In the cicada's cry    
-The fragrant blossoms remain.    
-Darting dragon-fly!    
+Seek on high bare trails    
+here at your flowering grave    
+A water-jewel    
 

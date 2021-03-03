@@ -1,4 +1,4 @@
-Too curious flower    
+None is travelling    
 in dusky night    
-Mogami River.    
+Come to rest our necks    
 

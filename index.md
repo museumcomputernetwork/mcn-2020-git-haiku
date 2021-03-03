@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-Thanks for the knowledge    
+Dawn-shining mountains    
+chirping, keeps the autumn gay    
+how interesting    
 

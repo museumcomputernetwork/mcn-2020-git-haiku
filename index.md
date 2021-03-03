@@ -1,4 +1,4 @@
-None is travelling    
-quick unexpected frog    
-and gazes at the moon.    
+Must springtime fade?    
+Is also changed to another    
+Two white butterflies?    
 

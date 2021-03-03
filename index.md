@@ -1,4 +1,4 @@
-Learning something new    
-therefore our thanks dark clouds    
-About this ignite    
+None is travelling    
+here at your flowering grave    
+They meet, they mate    
 

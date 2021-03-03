@@ -1,4 +1,4 @@
-The river gathering may rains    
+Learning something new    
 therefore our thanks dark clouds    
-Cold pale eyes pour tears    
+About this ignite    
 

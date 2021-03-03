@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-Come to rest our necks    
+No oil to read by    
+visit the ancestral grave    
+How soon it must die.    
 

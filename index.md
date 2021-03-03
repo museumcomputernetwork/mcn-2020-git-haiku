@@ -1,4 +1,4 @@
-Must springtime fade?    
-Is also changed to another    
-Two white butterflies?    
+A owner of the old thatched hut    
+loneliness? Just one leaf    
+from looking at the moon.    
 

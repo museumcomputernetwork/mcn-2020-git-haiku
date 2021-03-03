@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-from looking at the moon.    
+The river gathering may rains    
+therefore our thanks dark clouds    
+Cold pale eyes pour tears    
 

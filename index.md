@@ -1,4 +1,4 @@
-Lady butterfly    
-visit the ancestral grave    
-cherry-blossoms . . .    
+Cold first winter rain    
+A frog jumps in -    
+Mountain-top jewels    
 

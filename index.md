@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-chirping, keeps the autumn gay    
-how interesting    
+Camellia-petal    
+the scent of flowers floating    
+Splash!    
 

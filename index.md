@@ -1,4 +1,4 @@
-None is travelling    
-here at your flowering grave    
-They meet, they mate    
+Wake! The sky is light!    
+Heron's cry    
+Thanks for the knowledge    
 

@@ -1,4 +1,4 @@
-Seek on high bare trails    
-here at your flowering grave    
-A water-jewel    
+Seas are wild tonight    
+sky-reflecting violets    
+On the temple porch    
 

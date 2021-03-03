@@ -1,4 +1,4 @@
-Cold first winter rain    
-Twilight whippoorwill, whistle on, sweet deepener    
-Tall grass their monument    
+Spring is passing.    
+Line that won't be deleted    
+On the temple porch    
 

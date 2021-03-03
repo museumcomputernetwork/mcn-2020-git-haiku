@@ -1,4 +1,4 @@
-Cold first winter rain    
-A frog jumps in -    
-Mountain-top jewels    
+High up in the trees    
+spare my little buzzing friends    
+Mogami River.    
 

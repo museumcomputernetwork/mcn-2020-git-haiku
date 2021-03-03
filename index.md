@@ -1,4 +1,4 @@
-No oil to read by    
-visit the ancestral grave    
-How soon it must die.    
+Won't you come and see    
+these brilliant-hued hibiscus    
+and gazes at the moon.    
 

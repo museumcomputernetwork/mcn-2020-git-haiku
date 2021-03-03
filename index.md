@@ -1,4 +1,4 @@
-High up in the trees    
-spare my little buzzing friends    
-Mogami River.    
+This snowy morning    
+MCN is magical    
+the autumn dusk is here.    
 

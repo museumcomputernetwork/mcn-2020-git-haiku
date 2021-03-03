@@ -1,4 +1,4 @@
-Spring is passing.    
-Line that won't be deleted    
-On the temple porch    
+Mountain-rose petals    
+mingling with bright small shells    
+Thanks for the knowledge    
 

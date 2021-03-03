@@ -1,4 +1,4 @@
-Seas are wild tonight    
-sky-reflecting violets    
-On the temple porch    
+Lady butterfly    
+visit the ancestral grave    
+cherry-blossoms . . .    
 

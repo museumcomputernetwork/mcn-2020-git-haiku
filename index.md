@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-even the crickets' singing    
-CHI turns seventeen    
+Now that eyes of hawks    
+A frog jumps in -    
+A perfect evening!    
 

@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-as I take my darkening path    
-From the kiri tree.    
+Dry cheerful cricket    
+even the crickets' singing    
+CHI turns seventeen    
 

@@ -1,4 +1,4 @@
-The summer grasses.    
-Is also changed to another    
-About this ignite    
+Dawn-shining mountains    
+as I take my darkening path    
+From the kiri tree.    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-spare my little buzzing friends    
-Come to rest our necks    
+Dewdrop, let me cleanse    
+How swift it is    
+On the temple porch    
 

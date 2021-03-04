@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-How swift it is    
-On the temple porch    
+The summer grasses.    
+Is also changed to another    
+About this ignite    
 

@@ -1,4 +1,4 @@
-See: surviving suns    
-An herbal tea, sit, listen    
-Bush-clover petals    
+For a lovely bowl    
+soup, the salad, fish and all    
+The autumn dusk is here.    
 

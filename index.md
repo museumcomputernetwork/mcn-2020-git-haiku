@@ -1,4 +1,4 @@
-Now in sad autumn    
-The birds cry, and the fishes’ eyes are     
-A perfect evening!    
+First white snow of fall    
+the scent of flowers floating    
+Moon-lighted mountains!    
 

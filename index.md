@@ -1,4 +1,4 @@
-Too curious flower    
-There's no sign that can foretell    
-Bush-clover petals    
+Temple bells die out.    
+A frog jumps in -    
+My moonlit pillow    
 

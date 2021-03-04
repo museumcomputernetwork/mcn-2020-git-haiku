@@ -1,4 +1,4 @@
-First white snow of fall    
+None is travelling    
 the scent of flowers floating    
-Moon-lighted mountains!    
+Splash!    
 

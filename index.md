@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-soup, the salad, fish and all    
-Our hungry donkey    
+Poverty's child -    
+above white    
+It’s the Doll’s Festival.    
 

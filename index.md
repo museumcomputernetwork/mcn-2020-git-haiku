@@ -1,4 +1,4 @@
-Black cloudbank broken    
-loneliness? Just one leaf    
-A little woven cape    
+Ballet in the air    
+The fragrant blossoms remain.    
+Companion butterfly!    
 

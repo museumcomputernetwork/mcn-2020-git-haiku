@@ -1,4 +1,4 @@
-Here, where a thousand    
-An herbal tea, sit, listen    
-A solitary bird    
+Too curious flower    
+Here along this way but I,    
+Thanks for the knowledge    
 

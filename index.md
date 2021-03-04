@@ -1,4 +1,4 @@
-Temple bells die out.    
-A frog jumps in -    
-My moonlit pillow    
+Now in sad autumn    
+The birds cry, and the fishes’ eyes are     
+A perfect evening!    
 

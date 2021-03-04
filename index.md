@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-A frog jumps in -    
-A perfect evening!    
+For a lovely bowl    
+Exhausted from video    
+Muffled by hot rocks    
 

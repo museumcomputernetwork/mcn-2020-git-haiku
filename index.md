@@ -1,4 +1,4 @@
-For a lovely bowl    
-Exhausted from video    
-Muffled by hot rocks    
+Too curious flower    
+There's no sign that can foretell    
+Bush-clover petals    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-that black crow I hate so much    
-The Autumn wind.    
+See: surviving suns    
+An herbal tea, sit, listen    
+Bush-clover petals    
 

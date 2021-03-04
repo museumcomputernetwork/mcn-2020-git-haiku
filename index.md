@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-There's no sign that can foretell    
-The Autumn wind.    
+Spring is passing.    
+spare my little buzzing friends    
+Come to rest our necks    
 

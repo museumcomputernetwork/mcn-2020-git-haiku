@@ -1,4 +1,4 @@
-Won't you come and see    
-Please don't tell my museum    
-Come to rest our necks    
+The rains of summer join together.    
+Exhausted from video    
+The sun scatters    
 

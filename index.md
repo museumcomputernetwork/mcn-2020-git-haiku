@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Exhausted from video    
-The sun scatters    
+A owner of the old thatched hut    
+soup, the salad, fish and all    
+Our hungry donkey    
 

@@ -1,4 +1,4 @@
-The first day of the year:    
-network is awesome for tea-    
-My moonlit pillow    
+None is travelling    
+Heron's cry    
+A perfect evening!    
 

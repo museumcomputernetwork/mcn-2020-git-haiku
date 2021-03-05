@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Exhausted from video    
-How soon it must die.    
+Learning something new    
+then cry all birds and fishes    
+Our hungry donkey    
 

@@ -1,4 +1,4 @@
 For a lovely bowl    
-the scent of flowers floating    
-With tears.    
+How swift it is    
+Come to rest our necks    
 

@@ -1,4 +1,4 @@
-Won't you come and see    
-fell in silent dawn, spilling    
-CHI turns seventeen    
+Seas are wild tonight    
+sky-reflecting violets    
+Of warriors’ dreams.    
 

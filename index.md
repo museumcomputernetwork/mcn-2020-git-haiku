@@ -1,4 +1,4 @@
-Swallow in the dusk    
-Penetrating the very rock,    
-A cicada’s voice.    
+Cold first winter rain    
+let us arrange these flowers    
+This autumn evening.    
 

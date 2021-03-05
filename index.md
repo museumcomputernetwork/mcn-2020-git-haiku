@@ -1,4 +1,4 @@
-None is travelling    
-Heron's cry    
-A perfect evening!    
+Poverty's child -    
+loneliness? Just one leaf    
+Moon-lighted mountains!    
 

@@ -1,4 +1,4 @@
-No oil to read by    
-Please don't tell my museum    
-Muffled by hot rocks    
+Won't you come and see    
+the scent of flowers floating    
+from looking at the moon.    
 

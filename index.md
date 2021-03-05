@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-captains swore grand conquest    
-Waterfall music    
+In the twilight rain    
+MCN is magical    
+Moon-lighted mountains!    
 

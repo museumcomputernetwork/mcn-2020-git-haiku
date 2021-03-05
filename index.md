@@ -1,4 +1,4 @@
-Daylight is here now    
-like ripple on the water    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+captains swore grand conquest    
+Waterfall music    
 

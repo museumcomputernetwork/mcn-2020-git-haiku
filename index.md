@@ -1,4 +1,4 @@
-snow falling soon now    
-perfumes her wings by floating    
-A perfect evening!    
+Swallow in the dusk    
+Penetrating the very rock,    
+A cicada’s voice.    
 

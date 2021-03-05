@@ -1,4 +1,4 @@
-Cold first winter rain    
-let us arrange these flowers    
-This autumn evening.    
+The first day of the year:    
+network is awesome for tea-    
+My moonlit pillow    
 

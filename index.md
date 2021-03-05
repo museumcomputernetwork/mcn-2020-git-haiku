@@ -1,4 +1,4 @@
-This is a haiku    
-There's no sign that can foretell    
-But he's beautiful!    
+Why so scrawny, cat?    
+April's air stirs in willow-leaves    
+from looking at the moon.    
 

@@ -1,4 +1,4 @@
-Learning something new    
-then cry all birds and fishes    
-Our hungry donkey    
+No oil to read by    
+Please don't tell my museum    
+Muffled by hot rocks    
 

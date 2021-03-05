@@ -1,4 +1,4 @@
-For a lovely bowl    
-How swift it is    
-Come to rest our necks    
+Dry cheerful cricket    
+Exhausted from video    
+How soon it must die.    
 

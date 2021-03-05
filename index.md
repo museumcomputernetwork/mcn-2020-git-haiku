@@ -1,4 +1,4 @@
-In the twilight rain    
-MCN is magical    
-Moon-lighted mountains!    
+Won't you come and see    
+mingling with bright small shells    
+But he's beautiful!    
 

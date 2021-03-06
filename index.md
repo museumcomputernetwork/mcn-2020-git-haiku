@@ -1,4 +1,4 @@
-the zoom waiting room    
-let us to the road again    
-from the kiri tree.    
+This is a haiku    
+he starts to grind the rice,    
+Seasoned with petals    
 

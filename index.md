@@ -1,4 +1,4 @@
-the zoom waiting room    
-Here along this way but I,    
-They meet, they mate    
+Why so scrawny, cat?    
+There's no sign that can foretell    
+are darkened . . .    
 

@@ -1,4 +1,4 @@
-Mountain-rose petals    
-How swift it is    
-The autumn dusk is here.    
+snow falling soon now    
+I must work and attend MCN    
+-ching me new tech skills!    
 

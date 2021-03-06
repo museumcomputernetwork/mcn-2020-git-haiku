@@ -1,4 +1,4 @@
-This is a haiku    
-he starts to grind the rice,    
-Seasoned with petals    
+Indoors wintertime    
+in dusky night    
+Tall grass their monument    
 

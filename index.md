@@ -1,4 +1,4 @@
-snow falling soon now    
-I must work and attend MCN    
--ching me new tech skills!    
+Will we meet again    
+All that remains    
+Basho lines the moon    
 

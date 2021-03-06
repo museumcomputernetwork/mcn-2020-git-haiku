@@ -1,4 +1,4 @@
-Will we meet again    
-All that remains    
-Basho lines the moon    
+An old pond    
+starving for fat fish or mice    
+A water-jewel    
 

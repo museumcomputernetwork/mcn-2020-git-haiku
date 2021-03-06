@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-as I take my darkening path    
-A little woven cape    
+The first day of the year:    
+There's no sign that can foretell    
+Since there is no rice    
 

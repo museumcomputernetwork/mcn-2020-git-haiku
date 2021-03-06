@@ -1,4 +1,4 @@
-Learning something new    
-How swift it is    
-Can she edit this?    
+The summer grasses.    
+poor monkey, you too could use    
+are darkened    
 

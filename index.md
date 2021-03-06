@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-April's air stirs in willow-leaves    
-from looking at the moon.    
+the zoom waiting room    
+let us to the road again    
+from the kiri tree.    
 

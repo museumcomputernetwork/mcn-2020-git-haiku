@@ -1,4 +1,4 @@
-Mountain-rose petals    
-he starts to grind the rice,    
-cherry-blossoms . . .    
+None is travelling    
+oh voices of the wild ducks    
+I need a coffee    
 

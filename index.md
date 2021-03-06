@@ -1,4 +1,4 @@
-Ballet in the air    
-stretching over Sado Island    
-It’s the Doll’s Festival.    
+No oil to read by    
+above white    
+How soon it must die.    
 

@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-There's no sign that can foretell    
-are darkened . . .    
+Learning something new    
+How swift it is    
+Can she edit this?    
 

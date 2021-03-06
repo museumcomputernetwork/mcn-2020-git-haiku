@@ -1,4 +1,4 @@
-Indoors wintertime    
-in dusky night    
-Tall grass their monument    
+Lady butterfly    
+A frog jumps in -    
+Of warriors’ dreams.    
 

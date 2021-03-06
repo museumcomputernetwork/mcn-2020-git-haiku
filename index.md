@@ -1,4 +1,4 @@
-snow falling soon now    
-chirping, keeps the autumn gay    
-About this ignite    
+The river gathering may rains    
+just enough to bend the leaves    
+Contemptuous of frost    
 

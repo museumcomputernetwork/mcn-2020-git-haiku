@@ -1,4 +1,4 @@
-The rains of summer join together.    
-and bring to men a chance to rest    
-but inside, coffee    
+snow falling soon now    
+chirping, keeps the autumn gay    
+About this ignite    
 

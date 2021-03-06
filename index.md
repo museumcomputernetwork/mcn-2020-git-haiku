@@ -1,4 +1,4 @@
-The first day of the year:    
-just enough to bend the leaves    
-Companion butterfly!    
+Mountain-rose petals    
+How swift it is    
+The autumn dusk is here.    
 

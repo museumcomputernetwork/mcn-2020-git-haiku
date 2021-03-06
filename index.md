@@ -1,4 +1,4 @@
-None is travelling    
-oh voices of the wild ducks    
-I need a coffee    
+The first day of the year:    
+just enough to bend the leaves    
+Companion butterfly!    
 

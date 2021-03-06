@@ -1,4 +1,4 @@
-The first day of the year:    
-There's no sign that can foretell    
-Since there is no rice    
+The rains of summer join together.    
+and bring to men a chance to rest    
+but inside, coffee    
 

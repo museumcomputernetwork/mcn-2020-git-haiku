@@ -1,4 +1,4 @@
-Lady butterfly    
-A frog jumps in -    
-Of warriors’ dreams.    
+Mountain-rose petals    
+he starts to grind the rice,    
+cherry-blossoms . . .    
 

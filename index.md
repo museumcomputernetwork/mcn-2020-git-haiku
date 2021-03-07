@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-email confirmation demands met    
+Temple bells die out.    
+he starts to grind the rice,    
+Basho lines the moon    
 

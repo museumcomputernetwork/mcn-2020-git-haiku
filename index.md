@@ -1,4 +1,4 @@
-In the cicada's cry    
-The birds cry, and the fishes’ eyes are     
-are darkened    
+The first day of the year:    
+All that remains    
+email confirmation demands met    
 

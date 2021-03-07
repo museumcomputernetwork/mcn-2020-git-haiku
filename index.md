@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-I am off to bed - but ah!    
-how interesting    
+Now in sad autumn    
+visit the ancestral grave    
+Of warriors’ dreams.    
 

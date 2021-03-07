@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Here along this way but I,    
-Contemptuous of frost    
+Now that eyes of hawks    
+All that remains    
+It’s the Doll’s Festival.    
 

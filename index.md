@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-then cry all birds and fishes    
-Our hungry donkey    
+Glorious the moon    
+falling, falling, falling now    
+Bearded, with bent canes    
 

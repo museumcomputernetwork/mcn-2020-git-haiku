@@ -1,4 +1,4 @@
-hello and how are we    
-An herbal tea, sit, listen    
-With tears.    
+An old pond    
+The fragrant blossoms remain.    
+How soon it must die.    
 

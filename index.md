@@ -1,4 +1,4 @@
-Glorious the moon    
-falling, falling, falling now    
-Bearded, with bent canes    
+White cloud of mist    
+even the crickets' singing    
+A perfect evening!    
 

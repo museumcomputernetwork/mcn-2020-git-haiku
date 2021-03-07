@@ -1,4 +1,4 @@
-Now in sad autumn    
-visit the ancestral grave    
-Of warriors’ dreams.    
+Silent the old town    
+then cry all birds and fishes    
+email confirmation demands met    
 

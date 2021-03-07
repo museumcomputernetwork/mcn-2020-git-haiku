@@ -1,4 +1,4 @@
-When you say something,    
-visit the ancestral grave    
-It’s the Doll’s Festival.    
+Seek on high bare trails    
+watching us pass, met death    
+And so it must be    
 

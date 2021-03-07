@@ -1,4 +1,4 @@
-No oil to read by    
-above white    
-How soon it must die.    
+When you say something,    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 

@@ -1,4 +1,4 @@
-None is travelling    
-quick unexpected frog    
+In the cicada's cry    
+The birds cry, and the fishes’ eyes are     
 are darkened    
 

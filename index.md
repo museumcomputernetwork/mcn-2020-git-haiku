@@ -1,4 +1,4 @@
-Temple bells die out.    
-he starts to grind the rice,    
-Basho lines the moon    
+Must springtime fade?    
+watching us pass, met death    
+Moon-lighted mountains!    
 

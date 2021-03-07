@@ -1,4 +1,4 @@
-This is a haiku    
-starving for fat fish or mice    
-how interesting    
+Dewdrop, let me cleanse    
+Here along this way but I,    
+Contemptuous of frost    
 

@@ -1,4 +1,4 @@
-Seek on high bare trails    
-watching us pass, met death    
-And so it must be    
+The first day of the year:    
+in your brief sweet waters    
+Contemptuous of frost    
 

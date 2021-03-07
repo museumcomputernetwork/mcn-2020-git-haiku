@@ -1,4 +1,4 @@
-In the sea-surf edge    
-is quieted with creepers    
-And evening bell    
+An old pond    
+How swift it is    
+how interesting    
 

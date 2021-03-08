@@ -1,4 +1,4 @@
-Poverty's child -    
-these brilliant-hued hibiscus    
-And so it must be    
+The rains of summer join together.    
+tolling twilight bell; Temple    
+This autumn evening.    
 

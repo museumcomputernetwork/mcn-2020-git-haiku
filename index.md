@@ -1,4 +1,4 @@
-In the sea-surf edge    
-All that remains    
-This autumn evening.    
+In the cicada's cry    
+perfumes her wings by floating    
+Tall grass their monument    
 

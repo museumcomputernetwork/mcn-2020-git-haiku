@@ -1,4 +1,4 @@
-the zoom waiting room    
-in your brief sweet waters    
-Since there is no rice    
+White cloud of mist    
+chirping, keeps the autumn gay    
+Enjoying the house    
 

@@ -1,4 +1,4 @@
-Spring is passing.    
-Tiffany Sprague edits books    
-but inside, coffee    
+An old pond    
+Twilight whippoorwill, whistle on, sweet deepener    
+My moonlit pillow    
 

@@ -1,4 +1,4 @@
-This is the new line    
-The fragrant blossoms remain.    
-On the temple porch    
+The summer grasses.    
+fell in silent dawn, spilling    
+But he's beautiful!    
 

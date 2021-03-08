@@ -1,4 +1,4 @@
-Seas are wild tonight    
-just enough to bend the leaves    
-cherry-blossoms . . .    
+Carven gods long gone    
+There's no sign that can foretell    
+They meet, they mate    
 

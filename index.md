@@ -1,4 +1,4 @@
-An old pond    
-here at your flowering grave    
-Over the orchid    
+Seas are wild tonight    
+twin butterflies until, twice white    
+Of warriors’ dreams.    
 

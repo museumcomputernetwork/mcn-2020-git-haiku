@@ -1,4 +1,4 @@
-Here, where a thousand    
-he starts to grind the rice,    
-Splash!    
+I am at the MCN    
+above white    
+The sun scatters    
 

@@ -1,4 +1,4 @@
-Must springtime fade?    
-therefore our thanks dark clouds    
-From the kiri tree.    
+Imaging skills flow    
+All that remains    
+A butterfly floats and balances    
 

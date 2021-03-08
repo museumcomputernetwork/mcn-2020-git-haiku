@@ -1,4 +1,4 @@
-Under cherry-trees    
-All that remains    
-Companion butterfly!    
+Poverty's child -    
+these brilliant-hued hibiscus    
+And so it must be    
 

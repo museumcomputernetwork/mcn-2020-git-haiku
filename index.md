@@ -1,4 +1,4 @@
-This is a haiku    
-therefore our thanks dark clouds    
-Splash!    
+Under cherry-trees    
+watching us pass, met death    
+Come to rest our necks    
 

@@ -1,4 +1,4 @@
-An old pond    
-Twilight whippoorwill, whistle on, sweet deepener    
-My moonlit pillow    
+Here, where a thousand    
+he starts to grind the rice,    
+Splash!    
 

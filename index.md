@@ -1,4 +1,4 @@
-The summer grasses.    
-fell in silent dawn, spilling    
-But he's beautiful!    
+Seas are wild tonight    
+just enough to bend the leaves    
+cherry-blossoms . . .    
 

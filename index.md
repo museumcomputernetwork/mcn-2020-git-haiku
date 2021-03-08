@@ -1,4 +1,4 @@
-Under cherry-trees    
-watching us pass, met death    
-Come to rest our necks    
+Spring is passing.    
+Tiffany Sprague edits books    
+but inside, coffee    
 

@@ -1,4 +1,4 @@
-The rains of summer join together.    
-tolling twilight bell; Temple    
-This autumn evening.    
+This is the new line    
+The fragrant blossoms remain.    
+On the temple porch    
 

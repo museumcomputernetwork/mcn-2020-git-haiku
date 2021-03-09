@@ -1,4 +1,4 @@
-High up in the trees    
-oh voices of the wild ducks    
-Enjoying the house    
+The river gathering may rains    
+who spends his little breakfast    
+to read while you wait    
 

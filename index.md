@@ -1,4 +1,4 @@
-The rains of summer join together.    
-spare my little buzzing friends    
-Like Git and haikus!    
+Wake! The sky is light!    
+Heron's cry    
+A cicada’s voice.    
 

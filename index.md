@@ -1,4 +1,4 @@
-Now in sad autumn    
-I must work and attend MCN    
-I need a coffee    
+The rains of summer join together.    
+Is also changed to another    
+Morning-glory gazing    
 

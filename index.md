@@ -1,4 +1,4 @@
-In the twilight rain    
-loneliness? Just one leaf    
-Two white butterflies?    
+The summer grasses.    
+perfumes her wings by floating    
+On the temple porch    
 

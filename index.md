@@ -1,4 +1,4 @@
-Imaging skills flow    
-tolling twilight bell; Temple    
-Of warriors’ dreams.    
+The rains of summer join together.    
+therefore our thanks dark clouds    
+I need a coffee    
 

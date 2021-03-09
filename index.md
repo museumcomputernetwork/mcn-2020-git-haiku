@@ -1,4 +1,4 @@
-The rains of summer join together.    
-twin butterflies until, twice white    
-Tall grass their monument    
+Lightning -    
+How swift it is    
+Stabs the darkness    
 

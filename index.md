@@ -1,4 +1,4 @@
-Such utter silence!    
-Heron's cry    
-Tall grass their monument    
+Poverty's child -    
+poor monkey, you too could use    
+Bearded, with bent canes    
 

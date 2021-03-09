@@ -1,4 +1,4 @@
 The rains of summer join together.    
-therefore our thanks dark clouds    
-I need a coffee    
+twin butterflies until, twice white    
+Tall grass their monument    
 

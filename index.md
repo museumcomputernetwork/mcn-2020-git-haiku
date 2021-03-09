@@ -1,4 +1,4 @@
-The sea darkening    
-and bring to men a chance to rest    
-are darkened . . .    
+The rains of summer join together.    
+spare my little buzzing friends    
+Like Git and haikus!    
 

@@ -1,4 +1,4 @@
-MCN '20    
-poor monkey, you too could use    
-Our hungry donkey    
+Such utter silence!    
+Heron's cry    
+Tall grass their monument    
 

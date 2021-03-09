@@ -1,4 +1,4 @@
-hello and how are we    
-even the crickets' singing    
-are darkened . . .    
+High up in the trees    
+oh voices of the wild ducks    
+Enjoying the house    
 

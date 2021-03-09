@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-Seasoned with petals    
+Glorious the moon    
+soup, the salad, fish and all    
+Like our tendrilled life    
 

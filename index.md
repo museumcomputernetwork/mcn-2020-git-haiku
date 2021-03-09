@@ -1,4 +1,4 @@
-The river gathering may rains    
-who spends his little breakfast    
-to read while you wait    
+Lightning -    
+Here along this way but I,    
+Seasoned with petals    
 

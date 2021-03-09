@@ -1,4 +1,4 @@
-Lightning -    
-How swift it is    
-Stabs the darkness    
+In the twilight rain    
+loneliness? Just one leaf    
+Two white butterflies?    
 

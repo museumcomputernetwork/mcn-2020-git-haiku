@@ -1,4 +1,4 @@
-The summer grasses.    
-perfumes her wings by floating    
-On the temple porch    
+hello and how are we    
+even the crickets' singing    
+are darkened . . .    
 

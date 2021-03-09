@@ -1,4 +1,4 @@
-MCN '20    
-soup, the salad, fish and all    
-Of warriors’ dreams.    
+Now in sad autumn    
+I must work and attend MCN    
+I need a coffee    
 

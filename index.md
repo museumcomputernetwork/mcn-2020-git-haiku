@@ -1,4 +1,4 @@
-Poverty's child -    
-poor monkey, you too could use    
-Bearded, with bent canes    
+MCN '20    
+soup, the salad, fish and all    
+Of warriors’ dreams.    
 

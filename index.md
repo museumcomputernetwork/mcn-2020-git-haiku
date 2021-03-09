@@ -1,4 +1,4 @@
-Chirping of the quails    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+Oh, tranquility!    
+loneliness? Just one leaf    
+The Autumn wind.    
 

@@ -1,4 +1,4 @@
-Glorious the moon    
-soup, the salad, fish and all    
-Like our tendrilled life    
+The sea darkening    
+and bring to men a chance to rest    
+are darkened . . .    
 

@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Tiffany Sprague edits books    
-Goes plop! Watersplash!    
+Ah me! I am one    
+as I take my darkening path    
+Moon-lighted mountains!    
 

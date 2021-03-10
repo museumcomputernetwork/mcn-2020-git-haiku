@@ -1,4 +1,4 @@
-The first day of the year:    
-poor monkey, you too could use    
-The Autumn wind.    
+Why so scrawny, cat?    
+Tiffany Sprague edits books    
+Goes plop! Watersplash!    
 

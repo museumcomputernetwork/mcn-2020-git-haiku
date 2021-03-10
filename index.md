@@ -1,4 +1,4 @@
-Silent the old town    
-mingling with bright small shells    
-How soon it must die.    
+The first day of the year:    
+poor monkey, you too could use    
+The Autumn wind.    
 

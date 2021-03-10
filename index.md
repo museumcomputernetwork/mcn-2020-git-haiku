@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
-Morning-glory gazing    
+Silent the old town    
+mingling with bright small shells    
+How soon it must die.    
 
